@@ -1,7 +1,7 @@
 # [PD] Libros - 48 leyes del Poder
 
 **Source:** [PD] Libros - 48 leyes del Poder.docx  
-**Pages:** 109  
+**Pages:** 106  
 **Extracted:** 2026-04-12
 
 ---
@@ -432,84 +432,63 @@ Además, queremos agradecer a Susan Petersen y Barbara Grossman, los editores de
 
 ## CONTENIDO
 
-PREFACIO  página 19
-LEY N° 1 página 29
+
 
 ---
 
 ## NUNCA LE HAGA SOMBRA A SU AMO
 
 Esfuércese siempre por lograr que quienes están jerárquicamente por encima de usted se sientan cómodos con su sensación de superioridad. No permita que sus deseos de complacerlos o impresionarlos lo induzcan a hacer ostentación de sus talentos y de su capacidad, ya que ello podrá generar un efecto opuesto al deseado, es decir, inspirar temor e inseguridad en sus superiores. Hágalos aparecer siempre más brillantes de lo que en realidad son... y accederá a la cumbre del poder.
-LEY N° 2 página 37
 NUNCA CONFÍE DEMASIADO EN SUS AMIGOS; APRENDA A UTILIZAR A SUS ENEMIGOS
 Desconfié de los amigos; suelen ser los primeros en traicionarlo, ya que caen fácilmente presa de la envidia. También suelen convertirse en irrespetuosos y tiranos. En cambio, emplee a quien haya sido su enemigo, y le será más leal que un amigo, ya que deberá hacer mayores esfuerzos por demostrar su adhesión. Lo cierto es que usted debe temer más a sus amigos que a sus enemigos. Si no tiene enemigos, busque la forma de creárselos.
-LEY N° 3 página 47
 
 ---
 
 ## DISIMULE SUS INTENCIONES
 
 Desconcierte a la gente y manténgala en la mayor ignorancia posible, sin melar nunca el propósito de sus acciones. Si no tienen la menor idea de, qué es lo que usted quiere logran les resultará imposible preparar una defensa. Condúzcalos por el camino de las falsas suposiciones, envuélvalos en una nube de humo y verá que, cuando al fin caigan en la cuenta de las verdaderas intenciones de usted, ya será tarde para ellos.
-LEY N° 4 página 65
 
 ---
 
 ## DIGA SIEMPRE MENOS DE LO NECESARIO
 
 Cuando intente impresionar a la gente con palabras, tenga en cuenta que cuanto más diga tanto más vulnerable será y tanto menor control de la situación tendrá. Incluso cuando lo que diga sea sólo una banalidad, parecerá una idea original si la plantea en forma vaga, abierta y enigmática. Las personas poderosas impresionan e intimidan por su parquedad. Cuarto más hable, mayor será el riesgo de decir alguna tontería.
-LEY N° 5 página 72
 CASI TODO DEPENDE DE SU PRESTIGIO; DEFIÉNDALO A MUERTE
 Su renombre y su prestigio constituyen la piedra angular del poder. Basta el prestigio para intimidar y ganar. Sin embargo, una vez que decae, usted se tornará vulnerable y 4erá atacado
-CONTENIDO I 9
 por todos los flancos. Convierta su prestigio en una fortaleza inexpugnable. Manténgase alerta frente a cualquier tipo de ataques potenciales y desbarátelos antes de que se produzcan. Al mismo tiempo, aprenda a destruir a sus enemigos abriendo brechas en la reputación de ellos. Luego dé un paso al costado y deje que la opinión pública los crucifique.
-LEY N° 6 página 81
 BUSQUE LLAMAR LA ATENCIÓN A CUALQUIER PRECIO
 Todo es juzgado por su apariencia; lo que no se ve no cuenta. Nunca acepte perderse en el anonimato de la multitud o ser sepultado por el olvido. Ponga toda su fuerza en destacarse. Conviértase en un imán que concentre la atención de los demás, mostrándose más grande, más atractivo y más misterioso que la gran masa, tímida y anodina.
-LEY N° 7 página 95
 LOGRE QUE OTROS TRABAJEN POR USTED, PERO NO DEJE NUNCA DE LLEVARSE LOS LAURELES
 Utilice la inteligencia, los conocimientos y el trabajo físico de otros para promover su propia causa.
 Ese tipo de ayuda no sólo le permitirá ahorrar mucho tiempo y energía, sino que le conferirá un aura divina de rapidez y eficiencia. A la larga, sus colaboradores serán olvidaás y todos lo recordarán a usted. Nunca haga lo que otros pueden hacer por usted.
-LEY N° 8 página 101
 HAGA QUE LA GENTE VAYA HACIA USTED Y, DE SER NECESARIO, UTILICE LA CARNADA MÁS ADECUADA PARA LOGRARLO
 Cuando obligue a otro a actuar, deberá ser usted quien en todo momento ejerza el control. Siempre es mejor lograr que su contrincante se acerque a usted y abandone, en este proceso, sus propios planes. Atráigalo con ganancias fabulosas... y después proceda a atacar. Usted tiene todos los ases en la mano.
-LEY N° 9 página 109
 GANE A TRAVÉS DE SUS ACCIONES, NUNCA POR MEDIO DE ARGUMENTOS
 Cualquier triunfo circunstancial que usted obtenga a través de argumentación verbal en realidad es sólo una victoria pírrica: el resentimiento y la mala voluntad que así genera son más intensos y duraderos que cualquier acuerdo momentáneo que haya logrado. Es mucho más eficaz lograr la coincidencia de otros con usted a través de sus acciones, sin decir palabra alguna. No explique; demuestre.
-LEY N° 10 página 116
 PELIGRO DE CONTAGIO: EVITE A LOS PERDEDORES Y LOS DESDICHADOS
 La desdicha de los demás puede conducirlo a la muerte: los estados de ánimo son tan contagiosos y tóxicos como una enfermedad infecciosa. Aunque sienta que debe tenderle una mano a alguien que se está hundiendo, lo único que logrará con ello será acelerar su propia caída. A menudo, los perdedores, son los artífices de su propia desgracia y terminan por transmitirla a quien quiere ayudarlos. Evítelos y, en cambio, frecuente a individuos ganadores y felices.
-10 I CONTENIDO
-LEY N° 11 página 123
 
 ---
 
 ## HAGA QUE LA GENTE DEPENDA DE USTED
 
 Para mantener su independencia, es indispensable que los demás lo quieran y necesiten. Cuanto más confíen y dependan de usted, tanto más libertad usted tendrá. Haga que la gente dependa de usted para lograr su felicidad y prosperidad, y no tendrá nada que temer. Nunca enseñe a los demás lo suficiente como para que puedan arreglárselas sin su ayuda.
-LEY N° 12 página 131
 PARA DESARMAR A SU VÍCTIMA, UTILICE LA FRANQUEZA Y LA GENEROSIDAD EN FORMA SELECTIVA
 Un gesto sincero y honesto compensará docenas de actitudes dictadas por la hipocresía y la falsedad. El gesto de franca y honesta generosidad hace bajar la guardia aun al individuo más desconfiado. Una vez que su sinceridad selectiva haya abierto una brecha en la armadura del otro, podrá manipularlo y embaucarlo a su antojo. Un obsequio oportuno —especie de caballo de Troya— podrá cumplir el mismo objetivo.
-LEY N° 13 página 139
 CUANDO PIDA AYUDA, NO APELE A LA COMPASIÓN O A LA GRATITUD DE LA GENTE, SINO A SU EGOÍSMO
 Si necesita recurrir a la ayuda de un aliado, no se moleste en recordarle el apoyo que usted le dio en el pasado, o sus buena.; acciones. Lo pasado se ignora se olvida. Si, en cambio, al formular su pedido de colaboración usted muestra elementos que beneficiarán a la otra persona y hace gran hincapié en ellos, su contrincante responderá con entusiasmo a su solicitud, al detectar el beneficio que podría obtener.
-LEY N° 14 página 146
 MUÉSTRESE COMO UN AMIGO PERO ACTÚE COMO UN ESPÍA
 Es de fundamental importancia saberlo todo sobre su rival. Utilice espías para reunir informa- ción valiosa que le permita mantener siempre una ventaja sobre él. Y mejor aún: haga usted mismo de espía. Aprenda a sondear con cuidado a la gente en corteses encuentros sociales.
 Formule preguntas indirectas para lograr que el otro revele sus intenciones y sus debilidades. Toda ocasión es buena para ejercer el arte del espionaje.
-LEY N° 15 página 153
 APLASTE POR COMPLETO A SU- ENEMIGO
 Empezando por Moisés, todos los grandes líderes de la' historia sabían que era necesario aplastar por completo al enemigo al que temían. (En algunas oportunidades aprendieron esta lección a fuerza de golpes.) Si se deja encendida una sola brasa, por muy débil que sea, siempre se corre el riesgo de que vuelva a desencadenarse un incendio. Se ha perdido más por una aniquilación a medias que por una exterminación total: el enemigo se recuperará y buscará venganza. Destrúyalo por completo, no sólo fisica sino también espiritualmente.
 CONTENIDO I //
-LEY N° 16 página 162
 UTILICE LA AUSENCIA PARA INCREMENTAR EL RESPETO Y EL HONOR
 Demasiada oferta reduce el precio: cuanto más lo vean y oigan, tanto menos necesario lo considerarán los demás. Si ya ha afirmado su posición dentro de un grupo determinado, un alejamiento temporario hará que hablen más de usted, e incluso que lo admiren. Deberá aprender cuándo alejarse. Recuerde que la escasez de un recurso incrementa su valor.
-LEY N° 17 página 171
 MANTENGA EL SUSPENSO. MANEJE EL ARTE DE LO IMPREDECIBLE
 El ser humano es hijo del hábito y tiene una necesidad insaciable de sentirse familiarizado con las actitudes de quienes lo rodean. Si usted se muestra predecible, confiere a los demás la sensación de tener cierto control sobre usted. Invierta los papeles: muéstrese deliberadamente impredecible. Las actitudes que en apariencia carecen de coherencia o propósito desconcertarán a los demás, que se agotarán tratando de explicarse sus movimientos y acciones. Llevada a un extremo, esta estrategia puede intimidar y aterrorizar.
-LEY N° 18 página 179
 NO CONSTRUYA FORTALEZAS PARA PROTEGERSE: EL AISLAMIENTO ES PELIGROSO
 El mundo es un sitio peligroso y los enemigos acechan por doquier; todos necesitan protegerse. Una fortaleza se presenta como la alternativa más segura. Pero el aislamiento lo expone más de lo que lo protege de los peligros que lo rodean, ya que lo aísla de información valiosa y lo destaca como un blanco fácil para los demás. Es mucho más seguro circulan mezclarse entré la gente y buscar aliados. La multitud lo protege de sus enemigos. ,
-LEY N° 19 .página 187
 SEPA CON QUIÉN ESTÁ TRATANDO: NO OFENDA A LA PERSONA EQUIVOCADA
 En el mundo hay muchas clases de personas diferentes, y usted no puede suponer que todos reaccionarán de la misma manera frente a sus estrategias. Hay ciertas personas que, si usted las manipula o engaña, pasarán el resto de su vida procurando vengarse. Serán, desde el momento de la ofensa, lobos con piel de oveja. Elija con cuidado a sus víctimas y a sus contrincantes, y nunca ofenda o engañe a la persc na equivocada.
 LEY N° 20 página )196
@@ -519,63 +498,48 @@ LEY N° 20 página )196
 ## NO SE COMPROMETA CON NADIE
 
 Sólo los tontos se apresuran siempre a tomar partido. No se comprometa con ninguna posición o causa, salvo con la suya propia. El hecho de mantener su independencia lo convierte en el amo de los demás. Obtenga beneficios oponiendo a las personas entre sí.
-12  I CONTENIDO
-LEY N° 21 página 209
 FINJA CANDIDEZ PARA ATRAPAR A LOS CÁNDIDOS: MUÉSTRESE MÁS TONTO QUE SU VÍCTIMA
 A nadie le gusta sentirse más estúpido que los demás. Por lo tanto, el truco consiste en hacer sentir sagaces e inteligentes a sus víctimas y, sobre todo, más sagaces e-inteligentes que usted. Una vez que las haya convencido de esto, nunca sospecharán que usted tiene motivaciones ocultas contra ellos.
-LEY N° 2 2 página 217
 UTILICE LA TÁCTICA DE LA CAPITULACIÓN. TRANSFORME LA DEBILIDAD EN PODER
 Cuando usted sea el más débil, nunca luche simplemente por salvar su honor opte, en cambio, por la capitulación. Rendirse le dará tiempo para recuperarse, tiempo para atormentar e irritar al vencedor, tiempo para esperar a que el poder de éste se diluya. No le dé la satisfacción de luchar y ser vencido por él. Capitule antes de ser derrotado. Al volver la otra mejilla, enfurecerá y desconcertará a su contrincante. Convierta la capitulación en un instrumento de poder.
-LEY N° 23 página 226
 
 ---
 
 ## CONCENTRE SUS FUERZAS
 
 Conserve sus fuerzas y su energía manteniéndolas concentradas en su punto más fuerte. Ganará más descubriendo un rico yacimiento y explotándolo en profundidad, que pasando de un yacimiento pobre a otro: la intensidad siempre triunfa sobre la dispersión. Cuando busque fuentes de poder que puedan promoverlo, procure encontrar siempre el patrón clave único, la vaca lechera que pueda ordeñar durante largo tiempo.
-LEY N° 24 página 233
 DESEMPEÑE EL PAPEL DE CORTESANO PERFECTO
 El Cortesano perfecto, adulador e intrigante, prospera y alcanza su plenitud en un mundo en el cual todo gira en torno del poder y de la habilidad política. Domina a la perfección el arte de la oblicuidad. Adula, se somete a sus superiores y reafirma su poder sobre los demás de la forma más encantadora y graciosamente indirecta y falsa. Aprenda a aplicar las leyes del cortesano, y su ascenso dentro de la corte no conocerá límites.
-LEY N° 25 página 248
 
 ---
 
 ## PROCURE RECREARSE PERMANENTEMENTE
 
 No acepte los papeles que la sociedad le ha endilgado. Fórjese una nueva identidad que atraiga la atención y nunca aburra al público. Sea el dueño de su propia imagen, en lugar de permitir que otros la definan por usted. Incorpore elementos dramáticos en sus gestos y acciones públicas, y su poder se verá reforzado y su personalidad crecerá en forma asombrosa.
-CONTENIDO I 13
-LEY N° 26 página 258
 
 ---
 
 ## MANTENGA SUS MANOS LIMPIAS
 
 Es necesario que, en todo momento, usted aparezca como paradigma de la corrección y la eficien- cia. Sus manos nunca se ensuciarán por ilícitos o descuidos. Mantenga esa apariencia impecable, utilizando a otros como testaferros o pantallas para ocultan cuando sea necesario, su participa- ción personal en hechos de esta índole.
-LEY N° 27 página 275
 JUEGUE CON LA NECESIDAD DE LA GENTE DE TENER FE EN ALGO, PARA CONSEGUIR SEGUIDORES INCONDICIONALES
 La gente tiene una necesidad irrefrenable de creer en algo. Conviértase en el centro focalizador de esa necesidad, ofreciéndoles una causa o una nueva convicción a la que adherir: Formúlela en términos vagos pero pletóricos de promesas. Enfatice el entusiasmo por sobre el pensamiento claro y racional. Dé a sus nuevos discípulos, rituales que realizar y exíjales sacrificios. Ante la ausencia de una religión organizada y grandes causas en las que puedan creer, su nuevo sistema de convic- ciones le conferirá un poder inaudito.
-LEY N° 28 página 289
 SEA AUDAZ AL ENTRAR EN ACCIÓN
 Si se siente inseguro frente a determinado curso de acción, nodo intente. Sus dudas y titubeos se transmitirán a la ejecución del plan. La timidez es sumamente peligrosa; lo mejor es encarar toda acción con audacia. Cualquier error que usted corneta por ser audaz se corregirá con facilidad mediante más audacia. Todo el mundo admira al audaz; nadie honra al timorato.
-LEY N° 29 página 299
 
 ---
 
 ## PLANIFIQUE SUS ACCIONES DE PRINCIPIO A FIN
 
 Un final brillante constituye el corolario que da énfasis a todo su accionar. Planifique su camino teniendo en cuenta todas las consecuencias posibles, todos los obstáculos y todos los giros del azar que puedan incidir de manera negativa sobre su trabajosa elaboración y otorgar la gloria a otros. Planificar todo un proceso, de principio a fin, evitará que lo abrumen los factores negativos y le permitirá saber con exactitud cuándo detenerse. Maneje la fortuna con cuidado y determine el futuro planificando a largo plazo.
-LEY N° 30 página 309
 
 ---
 
 ## HAGA QUE SUS LOGROS PAREZCAN NO REQUERIR ESFUERZOS
 
 Su accionar deberá parecer natural y de fácil ejecución. Toda la práctica y el esfuerzo que usted invierta en él, así como todas las habilidosas artimañas a las que recurra, deberán permanecer ocultos. Cuando actúe, hágalo como si la tarea que tiene entre manos fuese algo de lo más sencillo, como si pudiese hacer todavía mucho más. Evite la tentación de revelar lo mucho que usted trabaja, pues con ello sólo generará cuestionamientos. No le enseñe a nadie sus trucos especiales, o los usarán contra usted.
-14  I CONTENIDO
-LEY N° 31 página 319
 CONTROLE LAS OPCIONES: HAGA QUE OTROS JUEGUEN CON LAS CARTAS QUE USTED REPARTE
 El mejor engaño es aquel que aparenta ofrecer opciones al otro: sus víctimas sienten que controlan la situación, pero en realidad no son sino títeres en sus hábiles manos. Presente opciones que siempre le sean favorables, independientemente de cuál de ellas elijan los demás. Oblíguelos a optar entre el menor de dos males y logre que cualquiera de las dos elecciones resulte a favor de usted. Haga que cualquier alternativa por la que se decidan sus rivales, los perjudique a ellos y lo beneficie a usted.
-LEY N° 32 página 329
 
 ---
 
@@ -585,10 +549,8 @@ Muchas veces se evita la verdad porque suele ser dura y desagradable. Nunca recu
 LEY N° 33 p ágina 338
 DESCUBRA EL TALÓN DE AQUILES DE LOS DEMÁS
 Todo individuo tiene un punto débil, una fisura en la muralla que rodea su fortaleza. Por lo general, esa debilidad es algo que le causa inseguridad, o una emoción o una necesidad que lo supera. También puede ser un pequeño placer secreto. Sea lo que fuere, una vez que usted la haya descubierto esa debilidad se convierte en un elemento de presión que podrá manejar a su antojo y, por supuesto, siempre a su favor.
-LEY N° 34 página 351
 ACTÚE COMO UN REY PARA SER TRATADO COMO TAL
 Su forma de actuar determinará cómo lo tratarán los demás: a la larga, una presencia vulgar o común hará que la gente le pierda el respeto. Porque un rey se respeta a sí mismo e inspira el mismo sentimiento en los demás. Al adoptar una actitud de rey, mostrando confianza en su propio poder, logrará que lo consideren destinado a llevar una corona real sobre la cabeza.
-LEY N° 35 página 361
 
 ---
 
@@ -596,73 +558,58 @@ LEY N° 35 página 361
 
 Nunca demuestre tener prisa, ya que el apuro delata una falta de control sobre el tiempo y sobre su propio accionar. Muéstrese siempre paciente, como si supiera que, con el tiempo, todos sus deseos se cumplirán. Conviértase en especialista en el arte de detectar el momento propicio para cada cosa. Descubra el espíritu de los tiempos actuales y las tendencias que lo llevarán al poder. Aprenda a mantenerse a la expectativa cuando el momento propicio no haya llegado, y a golpear con fuerza cuando la oportunidad le sea propicia.
 CONTENIDO	15
-LEY N ° 36 página 371
 MENOSPRECIE LAS COSAS QUE NO PUEDE OBTENER: IGNORARLAS ES LA MEJOR DE LAS VENGANZAS
 Al prestar atención a un problema trivial, lo convierte en real y le confiere importancia. Cuanta más atención le preste' a un enemigo, más lo fortalecerá. Y, a menudo, un pequeño error se magnifica en el intento de corregirlo. A veces, lo mejor es dejar ciertas cosas por completo de lado. Si hay algo que usted desea pero no puede obtener, menosprécielo. Cuanto menos interés demuestre, mayor será el nivel de superioridad que verán los demás en usted.
-LEY N° 37 página 381
 ARME ESPECTÁCULOS IMPONENTES
 Una imaginería impactante y gestos simbólicos grandiosos generan aura de poden ya que ejercen gran atracción sobre todos. Presente espectáculos imponentes para quienes lo rodean, plenos de elementos visuales fascinantes y radiantes simbolismos que enfaticen su presencia. Encandilados por las apariencias, los demás no se darán cuenta de lo que usted está haciendo en realidad.
-LEY N° 38 página 390
 PIENSE COMO QUIERA, PERO COMPÓRTESE COMO LOS DEMÁS
 Si usted hace ostentación de ir contra la corriente, alardeando acerca de sus ideas poco convencionales y sus actitudes heterodoxas, la gente pensará que usted sólo desea llamar la atención y que desprecia a los demás. Encontrarán la forma de castigarlo por hacerlos sentir inferiores. Es mucho más seguro confundirse con la masa y adoptar un cierto aire "común". Limítese a compartir su originalidad con amigos tolerantes y con aquellas personas de las que está seguro que aprecian su forma de ser diferente y especial.
-LEY N° 39 página 400
 
 ---
 
 ## REVUELVA LAS AGUAS PARA ASEGURARSE UNA BUENA PESCA
 
 La ira y las emociones son estratégicamente contraproducentes. Siempre deberá mantenerse sereno y objetivo, pero si puede enfurecer a sus enemigos mientras usted conserva la calma, obtendrá una ventaja decisiva. Desubique a sus enemigos: descubra la grieta, a través de la cual pueda sacudirlos y manejarlos.
-LEY N° 40 página 409
 
 ---
 
 ## MENOSPRECIE LO QUE ES GRATUITO
 
 Todo lo que es gratuito es peligroso, ya que por lo general implica alguna treta o un compromiso oculto. Las cosas que tienen valor valen la pena pagarse. De esta manera, no estará obligado a gratitud alguna, se verá libre de culpa y evitará fraudes y engaños. Lo más inteligente es, a menudo, pagar el precio total. Cuando hablamos de excelencia no hay gangas. Sea generoso con su dinero y hágalo circulan dado que la generosidad es señal e imán de poder
-16  I CONTENIDO
-LEY N° 41 página 426
 
 ---
 
 ## EVITE IMITAR A LOS GRANDES HOMBRES
 
 Lo que se produce por primera vez siempre parece mejor y más original que lo que viene después. Si usted sucede a un gran hombre o tiene padres célebres, deberá lograr el doble para poder superar la imagen de ese "modelo". No se pierda en la sombra de esos "grandes" ni se quede estancado en un pasado que no es obra suya: encuentre su propia identidad y reafírmela con su accionar diferente. Elimine a ese padre dominante, reniegue de su herencia y gane poder a través de sus propios méritos.
-LEY N° 42 página 439
 MUERTO EL PERRO, SE ACABÓ LA RABIA
 Los problemas suelen tener su origen en un solo individuo fuerte: el instigador, el subalterno arrogante, el sembrador de inquinas y resentimientos. Si usted deja espacio para el accionar de este tipo de individuo, otros sucumbirán a la influencia del personaje. No espere a que los problemas que él causa se multipliquen, y no trate de negociar con él, pues es irrecuperable. Neutralice esa influencia, aislándolo o eliminándolo. Recuerde que, muerto el perro, se acabó la rabia.
-LEY N° 43 página 449
 TRABAJE SOBRE EL CORAZÓN Y LA MENTE DE LOS DEMÁS
 La coerción provoca una reacción que, con el tiempo, puede actuar contra usted. Es necesario lograr, mediante maniobras de seducción, que los demás se muevan en la dirección que usted desea. Una vez seducida, la persona se convierte en su leal servidor. Y la forma más eficaz de seducir a alguien, consiste en manejar con habilidad las flaquezas y la psicología del individuo. Debilite la resistencia del otro a través de la manipulación de las emociones, jugando con lo que el otro ama y valora, o lo que teme. Si usted ignora el corazón y la mente de los demás, terminarán odiándolo.
-LEY N° 44 página 459
 
 ---
 
 ## DESARME Y ENFUREZCA CON EL EFECTO ESPEJO
 
 El espejo refleja la realidad pero también es el arma perfecta para el engaño: cuando usted refleja a sus enemigos, haciendo exactamente lo que hacen ellos, sus rivales no lograrán deducir su estrategia. El Efecto Espejo los burla y humilla, lo cual los lleva a reaccionar en forma desmedida. Al poner un espejo frente a su psique, usted los seduce con la ilusión de que comparte sus valores. Al reflejar sus acciones en un espejo, les enseña una lección. Son muy pocos los que pueden resistirse al poder del Efecto Espejo.
-LEY N° 45 página 478
 PREDIQUE LA NECESIDAD DE INTRODUCIR CAMBIOS, PERO NUNCA MODIFIQUE DEMASIADO A LA VEZ
 En teoría, todo el mundo comprende la necesidad del cambio, pero en el nivel cotidiano el ser humano es hijo de la costumbre. Demasiada innovación resulta traumática y conducirá a la rebelión. Si usted es nuevo en una posición de poder, o un tercero que intenta construir una base
 CONTENIDO 1 17
 de poder, haga alarde de respetar la forma tradicional de hacer las cosas. Si se impone un cambio necesario, hágalo aparecer como una leve modificación positiva del pasado.
-LEY N° 46 página 488
 
 ---
 
 ## NUNCA SE MUESTRE DEMASIADO PERFECTO
 
 Siempre es peligroso mostrarse superior a los demás, pero lo más peligroso de todo es parecer libre de toda falla o debilidad. La envidia genera enemigos silenciosos. Lo inteligente es poner de manifies- to, de vez en cuando, sus defectos y admitir vicios inofensivos, a fin de desviar la envidia y parecer más humano y ascesible. Sólo los dioses y los muertos pueden parecer perfectos impunemente.
-LEY N° 47 página 500
 NO VAYA MÁS ALLÁ DE SU OBJETIVO ORIGINAL; AL TRIUNFAR, APRENDA CUÁNDO DETENERSE
 El momento del triunfo es a menudo el momento de mayor peligro. En el fragor de la victoria, la arrogancia y un exceso de confianza en sus fuerzas pueden llegar a impulsarlo más allá de la me- ta que se había propuesto en un principio, y al ir demasiado lejos serán más los enemigos que se creará que los que logre vencer. No permita que el éxito se le suba a la cabeza. No hay nada como la estrategia y la planificación cuidadosa. Fíjese un objetivo y, cuando lo alcance, deténgase.
-LEY N° 48 página 510
 
 ---
 
 ## SEA CAMBIANTE EN SU FORMA
 
 Al adoptar una forma definida y tener un plan claro para todo el mundo, usted se convertirá en el blanco de ataques diversos. En lugar de brindar a sus enemigos algo concreto que atacan manténgase flexible, adaptable y en movimiento. Acepte el hecho de que nada es absoluto y de que no existen las leyes fijas. La mejor forma de protegerse es mantenerse tan fluido y amorfo como el agua. Nunca apueste a la estabilidad ni a un orden perdurable. Todo cambia.
-BIBLIOGRAFÍA página 525
 18	CONTENIDO
 
 ---
@@ -690,7 +637,6 @@ tierno".
 ## FRIEDRICH NIETZSCHE
 
 1844-1900
-20 I PREFACIO
 sutiles, planificando siempre sus movimientos por adelantado. La vida en la corte era un juego permanente, que exigía vigilancia constante y agudo pensamiento táctico. Era una guerra civilizada. Hoy en día encontramos una paradoja similar a la del cortesano del Renacimiento: todo debe aparecer civilizado, decente, democrático y logrado a través del juego limpio. Pero si nos atenemos en forma excesivamente estricta a estas pautas, si las tomamos demasiado al pie de la letra, seremos aplastados por aquellos, de entre quienes nos rodean, que son menos ingenuos que nosotros. Como dijo el gran diplomático y cortesano del Renacimiento, Nicolás Maquiavelo: "Todo hombre que intente ser bueno todo el tiempo terminará arruinado entre la gran cantidad de hombres que no lo son". La corte se consideraba el pináculo del refinamiento, pero debajo de esa brillante superficie hervía un caldero de oscuras emociones: ambición, envidia, deseo, odio. También nuestro mundo actual se considera el pináculo de la equidad y la justicia, pero son las mismas oscuras emociones de siempre las que laten dentro de cada individuo. El juego es el mismo. Por fuera hay que simular respeto y cortesía, mientras que por dentro —salvo que usted sea un necio— deberá aprender rápidamente a ser prudente y seguir el consejo de Napoleón: "Cubre tu mano de hierro con un guante de terciopelo". Si, al igual que el cortesano de otros tiempos, usted logra dominar el arte del juego indirecto, aprendiendo a seducir, encantar, engañar y maniobrar sutilmente a sus adversarios, accederá al pináculo del poder. Logrará que la gente se doblegue a su voluntad, sin darse cuenta de sus maniobras. y, al no darse cuenta, tampoco le opondrán resistencia ni alimentarán resenti-
 miento contra usted.
 Para algunos, la idea de desarrollar en forma consciente los juegos del poder —aunque se lo haga de manera indirecta— resulta malvada, antisocial, un recuerdo del pasado. Creen que pueden salir del juego, comportándose de una manera que no tiene nada que ver con el poder. Es necesario cuidarse de ese tipo de perso- nas porque, mientras hacia afuera expresan esas convicciones, por dentro suelen ser los más adictos participantes del juego del po- der. Utilizan estrategias que disimulan con habilidad la naturaleza de la manipulación que están ejerciendo. Esos individuos suelen hacer gala de su debilidad y de su falta de poder, como si se tratase de una virtud moral. Pero quienes de veras carecen de poder no muestran su debilidad con el fin de ganar simpatía o respeto. Cuando se hace marcada ostentación de las propias debilidades, en realidad se está utilizando una estrategia muy eficaz, sutil y engañosa del juego del poder (véase Ley N° 22, "Táctica de la capitulación").
@@ -708,7 +654,6 @@ Las únicas armas que nos permiten obtener de la gente lo que queremos son la fu
 1749-1832
 La flecha disparada por el arquero podrá matar o no a una única persona. Pero las estratagemas urdidas por el hombre sabio pueden matar incluso al niño en el vientre de su madre.
 KAUTILYA, FILÓSOFO INDIO, SIOLO_III A. C.
-PREFACIO I 21
 Si el mundo es como una gigantesca corte intrigante y manipuladora en la cual nos hallamos todos atrapados, no tiene
 sentido alguno tratar de eludir el juego. Esto sólo nos privará del poder, y la impotencia nos hará sentir más desgraciados. En lugar
 de luchar contra lo inevitable, en lugar de argumentar, gemir y sentirse culpable, es mucho mejor destacarse en el juego del poder. La verdad es que, cuanto mejor sepa manejar el poder,
@@ -741,7 +686,6 @@ Los principios no existen; lo único que existe son los hechos. No hay bien ni m
 HONORÉ DE BALZAC
 1799-1850
 PREFACIO	23
-24 I PREFACIO
 No se puede engañar con éxito si no se toma una cierta distan- cia de uno mismo, es decir, si no se logra ser muchas personas distintas, llevando la máscara que el día y el momento requieran. Con un enfoque de tal flexibilidad frente a todas las apariencias, incluso la suya propia, perderá gran parte de esa carga interior que lo retiene o limita. Torne su rostro tan maleable como el de un actor, trabaje para ocultar sus intenciones frente a los demás, practique el arte de atraer a la gente hacia sus trampas. Jugar con las apariencias y dominar el arte del engaño es uno de los placeres estéticos de la vida. Y también constituye un componente clave en la adquisición del poder.
 Si el engaño es el arma más poderosa de su arsenal, la paciencia (en todos sus actos) debe ser su escudo fundamental. La paciencia lo protegerá de cometer crasos y estúpidos errores. Al igual que el control de sus emociones, la paciencia es una habili- dad que no surge en forma espontánea, sino que se adquiere. Pero, para el caso, nada de lo relacionado con el poder es natural. El poder tiene más relación con lo divino que con el mundo natural. Y la paciencia es la virtud suprema de los dioses, que disponen de todo el tiempo del mundo. Todo lo bueno sucederá al fin; el pasto volverá a crecer si usted le da tiempo y sabe anticipar el futuro. La impaciencia, por su parte, sólo lo debilitará. Es la principal barrera entre usted y el poder.
 El poder es, en esencia, amoral. Una de las habilidades más importantes que deberá adquirir es la capacidad de aprender a ver circunstancias, en lugar de, simplemente, el bien o el mal. El po- der es un juego -esto es algo que hay que reiterar una y otra vez- y en un juego usted no juzga a sus contrincantes por sus intencio- nes sino por el efecto de sus acciones. Usted mide la estrategia y el poder de su adversario por lo que puede ver y sentir. ¡Cuántas veces se hace hincapié en las intenciones de alguien, sólo para disimular el engaño! ¡Qué importancia tiene si otro jugador, ya sea amigo o rival, tiene buenas intenciones y sólo piensa en los intereses de usted, si los efectos de su acción conducen a la ruina y a la confusión? Es natural que las personas enmascaren sus acciones con todo tipo de justificativos y afirmen siempre que han actuado de buena fe. Usted tiene que aprender a reírse por dentro cada vez que oiga algo semejante y nunca permitirse evaluar las intenciones y acciones de alguien por medio de juicios morales, que en realidad sólo son una excusa para la acumulación de poder.
@@ -765,7 +709,6 @@ Cualquier hombre que intente ser bueno todo el tiempo terminará yendo a la ruin
 EL PRÍNCIPE, Nicolás Maquiavelo, 1469-1527
 PREFACIO	97
 LEY N°
-1
 
 ---
 
@@ -778,7 +721,6 @@ LEY N°
 ## CRITERIO
 
 Esfuércese siempre por lograr que quienes están jerárqui- camente por encima de usted se sientan cómodos con su sensación de superioridad. No permita que sus deseos de complacerlos o impresionarlos lo induzcan a hacer osten- tación de sus talentos y de su capacidad, ya que ello podrá generar un efecto opuesto al deseado, es decir, inspirar temor e inseguridad en sus superiores. Hágalos aparecer siempre más brillantes de lo que en realidad son... y accederá a la cumbre del poder.
-129
 30 I LEY N° 1
 TRANSGRESIÓN DE LA LEY
 Nicolás Fouquet, el ministro de Finanzas de Luis xiv durante los primeros años del reinado de éste, era un hombre generoso, amante de las fiestas opulentas, las mujeres bonitas y la poesía. También amaba el dinero, dado que llevaba un estilo de vida bastante extravagante. Fouquet era muy hábil y, en gran medida, un colaborador indispensable para el rey; por lo tanto, a la muer- te del primer ministro Jules Mazarin, en 1661, el ministro de Finanzas esperaba ser designado su sucesor. El rey, en cambio, decidió suprimir ese cargo. Éstas y otras actitudes llevaron a Fouquet a sospechar que estaba cayendo en desgracia y, por lo tanto, decidió congraciarse con el rey organizando la fiesta más espectacular jamás vista. El motivo oficial de la fiesta era celebrar la inauguración del castillo de Fouquet, Vaux-le-Vicomte, pero su objetivo real era homenajear al rey, invitado de honor del aga- sajo.
@@ -842,7 +784,6 @@ INVALIDACIÓN
 Usted no puede vivir cuidándose de no contrariar a ninguna de todas las personas con las que se cruza pero puede ser selectivamente cruel. Si su superior es una estrella en decadencia, no tiene por qué temer hacerle sombra. No sienta piedad, ya que su amo tampoco tuvo ningún tipo de escrúpulos cuando, a sangre fría, se abría camino hacia la cumbre del éxito. Mida con cuidado la fuerza de su amo. Si descubre que es débil, acelere discreta- mente su caída: en momentos clave, muéstrese más capaz, más encantador y más sagaz que él. Si la posición de su superior es muy débil y está a punto de caer, deje que la situación siga su curso natural. Pero si su amo se encuentra en una posición firme, aunque usted se sepa más capaz, tómese su tiempo y tenga paciencia. Según el curso natural de los hechos, con el correr del tiempo el poder se debilita y cae. Algún día su amo habrá de caer y, si usted juega sus cartas con habilidad, lo sobrevivirá y superará.
 36	LEY N'
 LEY N°
-2
 NUNCA CONFÍE DEMASIADO
 EN SUS AMIGOS; APRENDA A UTILIZAR A SUS ENEMIGOS
 
@@ -851,7 +792,6 @@ EN SUS AMIGOS; APRENDA A UTILIZAR A SUS ENEMIGOS
 ## CRITERIO
 
 Desconfíe de los amigos; suelen ser los primeros en traicionarlo, ya que caen fácilmente presa de la envidia. También suelen convertirse en irrespetuosos y tiranos. En cambio, emplee a quien haya sido su enemigo, y le será más leal que un amigo, ya que deberá hacer mayores esfuerzos para demostrar su adhesión. Lo cierto es que usted debe temer más a sus amigos que a sus enemigos. Si no tiene enemigos, busque la forma de creárselos.
-37
 Para tener un buen enemigo, elige a un amigo: éste sabrá golpear donde más
 duele.
 DIANE DE POMERS, 1499-1566, AMANTE DE ENRIQUE II DE FRANCIA
@@ -1018,7 +958,6 @@ Aunque en general lo mejor es no mezclar el trabajo con la amistad, hay momentos
 Por último, el problema de trabajar con amigos es que se confunden los límites y las distancias que una actividad laboral requiere. Pero si ambas partes del arreglo comprenden con claridad los riesgos que la relación entraña, un amigo puede llegar a ser un empleado muy eficiente. Sin embargo, en una relación de este tipo nunca deberá bajar la guardia. Esté siempre atento a cualquier señal de conflicto emocional, como por ejemplo la envidia o la ingratitud. En el ámbito del poder nada es estable y hasta el amigo más íntimo puede convertirse en el peor de los enemigos.
 46 I LEY N° 2
 LEY N°
-3
 
 ---
 
@@ -1031,7 +970,6 @@ LEY N°
 ## CRITERIO
 
 Desconcierte a la gente y manténgala en la mayor igno- rancia posible, sin revelar nunca el propósito de sus acciones. Si no tienen la menor idea de qué es lo que us- ted quiere lograr, les resultará imposible preparar una defensa. Condúzcalos por el camino de las falsas supo- siciones, envuélvalos en una nube de humo y verá que, cuando al fin caigan en la cuenta de las verdaderas in- tenciones de usted,.ya será tarde para ellos.
-47
 la PARTE : UTILICE FALSOS OBJETOS DE DESEO Y PISTAS FALSAS PARA DISTRAER LA ATENCIÓN DE LOS DEMÁS.
 Si en algún momento de su accionar los demás albergan la menor sospecha de que usted está ocultando sus verdaderas intenciones, todo está perdido. No les dé la menor oportunidad de darse cuenta de cuál es su juego. Distráigalos con pistas falsas. Utilice una sinceridad fingida, emita señales ambiguas, presente objetos de deseo que lbs confundan. Al no lograr distinguir lo genuino de lo falso, no podrán discernir su verdadero objetivo.
 TRANSGRESIÓN DE LA LEY
@@ -1191,7 +1129,6 @@ El espectáculo y el entretenimiento son, sin duda, excelentes
 herramientas para disimular sus intenciones, pero no se los puede utilizar indefinidamente. El público se cansa y desconfia y, con el tiempo, se da cuenta de la trampa. La verdad es que los charlata- nes de antaño tenían que pasar con rapidez de ciudad en ciudad, antes de que se corriera la voz de que sus pociones no surtían efecto y que la diversión no era más que una trampa. Por el contrario, gente poderosa con una fachada inofensiva —los Talleyrand, los Rothschild, los Selassie— puede ejercer el engaño en un mismo lugar y durante toda su vida. Su actuación nunca pierde el encanto y rara vez despierta la sospecha de sus víctimas. La colorida cortina de humo deberá utilizarse con mucha cautela y sólo en las ocasiones apropiadas.
 64 i LEY N° 3
 LEY N°
-4
 
 ---
 
@@ -1204,7 +1141,6 @@ LEY N°
 ## CRITERIO
 
 Cuando intente impresionar a la gente con palabras, tenga en cuenta que cuanto más diga tanto más vulnerable será y tanto menor control de la situación tendrá. Incluso cuando lo que diga sea sólo una bana- lidad parecerá una idea original si la plantea en forma vaga, abierta y enigmática. Las personas poderosas im- presionan e intimidan por su parquedad. Cuanto más hable, mayor será el riesgo de decir alguna tontería.
-65
 Cuando en 1944, las cosas le fueron mal [el
 guionista cinematográfico] Michael Arlen se fue a Nueva York. Para ahogar sus penas, visitó el famoso restaurante
 21. En el vestíbulo se encontró con Sam Goldwyn, quien le dio
@@ -1214,7 +1150,6 @@ Mayer, un viejo conocido, quien le preguntó cuáles eran sus planes para el fut
 ofreció?", lo interrumpió Mayer. "No lo suficiente", contestó Arlen evasivamente. "¿Aceptaría quince mil por un contrato por treinta semanas?", preguntó Mayer. Esta vez, Arlen no titubeó y
 respondió simplemente: "Sí".
 THE LITTLE, BROWN BOOK OF ANECDOTES, CLIFTON FADIMAN, ED.,
-1985
 Una anécdota muy conocida sobre Kissinger se relaciona con un informe en el que Winston Lord había trabajado durante días. Le entregó el trabajo a Kissinger y éste se lo devolvió con una nota que decía: "¿Esto es lo mejor que puede hacer?". Lord reescribió y pulió el Informe y se lo volvió a dar a Kissinger, y de
 66 I LEY N ° 4
 TRANSGRESIÓN DE LA LEY
@@ -1302,7 +1237,6 @@ silencio puede despertar sospechas e incluso inseguridad, sobre todo en sus supe
 A veces, las palabras también pueden actuar como una especie de cortina de humo, útil para engañar a sus adversarios. Al llenar con palabras los oídos de su interlocutor, puede distraerlo e hipnotizarlo. Cuanto más hable, menos sospechoso resultará. Las personas verborrágicas no suelen ser consideradas falsas o manipuladoras, sino incapaces y poco sofisticadas. Éste es el reverso de la política del silencio empleada por los poderosos: hablando más y mostrándose más débil y menos inteligente que su víctima, podrá engañarla con suma facilidad.
 LEY N° 4	71
 LEY N°
-5
 CASI TODO DEPENDE DE SU PRESTIGIO; DEFIÉNDALO
 
 ---
@@ -1429,7 +1363,6 @@ INVALIDACIÓN
 Aquí no hay invalidación posible. La reputación es algo crítico y fundamental. Esta ley no admite excepciones. Es posible que, si la opinión de los demás le resulta indiferente, adquiera cierta fa- ma de insolente y arrogante, lo cual en sí mismo puede constituir una imagen valiosa; Oscar Wilde, por ejemplo, la explotó con maestría. Pero, dado que tenemos que vivir dentro de una sociedad en la que dependemos de las opiniones de quienes nos rodean, no se gana nada descuidando la propia reputación. Si no le importa cómo lo perciben los demás permitirá que otros decidan por usted. Sea el dueño de su propio destino, y también de su reputación.
 80 I LEY N° 5
 LEY N°
-6
 BUSQUE LLAMAR LA ATENCIÓN A CUALQUIER PRECIO
 
 ---
@@ -1593,7 +1526,6 @@ LOGRE QUE OTROS TRABAJEN POR USTED, PERO NO DEJE NUNCA
 ## CRITERIO
 
 Utilice la inteligencia, los conocimientos y el trabajo fí- sico de otros para promover su propia causa. Ese tipo de ayuda no sólo le permitirá ahorrar mucho tiempo y ener- gía, sino que le conferirá un aura divina de rapidez y eficiencia. A la larga, sus colaboradores serán olvidados y todos lo recordarán a usted. Nunca haga lo que otros pueden hacer por usted.
-95
 LA TORTUGA, EL ELEFANTE Y EL HIPOPÓTAMO
 Cierto día, la tortuga se encontró con el elefante, que le gritó: "¡Sal de mi camino, debilucho insignificante! ¡Corres peligro de que te pise!". La tortuga no le temía y se quedó donde estaba, de modo que el elefante la pisó pero no logró aplastarla. "¡No fanfarronees con tu fuerza, señor Elefante, pues yo soy tan fuerte como oír, dijo la tortuga, pero el elefante le contestó con una carcajada burlona. De modo que la tortuga le pidió que volviese a
 
@@ -1673,7 +1605,6 @@ INVALIDACIÓN
 Hay momentos en que adjudicarse el mérito del trabajo realizado por otros no es una forma de proceder inteligente: si su poder no está establecido con la firmeza suficiente, parecerá que trata de marginar a los demás. Para ser un brillante explotador de talen- tos, su propia posición debe ser inamovible, ya que de lo contrario lo acusarán de fraudulento y engañador.
 Asegúrese de saber cuándo conviene a sus fines permitir que otros compartan el mérito con usted. Es particularmente importante no ser codicioso cuando se tiene un amo a quien servir. La histórica visita del presidente estadounidense Richard Nixon a la República Popular China fue en principio su propia idea, pero quizá nunca se hubiese llevado a cabo de no haber sido por la sagaz diplomacia de Henry Kissinger. Y sin la habilidad de Kissinger tampoco habría tenido el éxito que tuvo. Sin embargo, en el momento de repartir méritos, Kissinger permitió que fuese Nixon quien se quedara con gran parte de los laureles. Sabiendo que, tarde o temprano, la verdad saldría a relucir, Kissinger tuvo mucho cuidado de no poner en peligro su posición en el corto plazo acaparando la atención, sino que manejó el juego con gran pericia: se atribuyó los méritos del trabajo de sus subordinados al tiempo que cedía con generosidad el mérito de su propio trabajo a su superior. Es así como se juega este juego.
 LEY N°
-8
 HAGA QUE LA GENTE VAYA HACIA USTED Y, DE SER NECESARIO, UTILICE LA CARNADA MÁS ADECUADA PARA LOGRARLO
 
 ---
@@ -1742,7 +1673,6 @@ A pesar de que, por lo general, la política más inteligente consiste en dejar 
 Hombres como César Borgia y Napoléon utilizaron el factor de la rapidez para intimidar y ejercer el control. Un movimiento rápido e imprevisto aterra y desmoraliza al contrincante. Deberá elegir sus tácticas de acuerdo con las circunstancias. Si el tiempo juega a su favor y sabe w usted y sus enemigos tienen, por lo menos, el mismo poder, agote la fuerza de sus contrincantes haciéndolos ir hacia usted. Si el tiempo le juega en contra —por ejemplo, cuando sus enemigos son más débiles y una espera les dará oportunidad de recuperarse— no les dé ninguna oportuni- dad. Ataque con rapidez, y no tendrán escapatoria. Como dijo el boxeador Joe Louis: "Podrá correr, pero no podrá esconderse".
 /OS	LEY N ° 8
 LEY N°
-9
 GANE A TRAVÉS DE SUS ACCIONES, NUNCA POR MEDIO
 
 ---
@@ -1756,7 +1686,6 @@ GANE A TRAVÉS DE SUS ACCIONES, NUNCA POR MEDIO
 ## CRITERIO
 
 Cualquier triunfo circunstancial que usted obtenga a través de argumentación verbal en realidad es sólo una victoria pírrica: el resentimiento y la mala voluntad que así genera son más intensos y duraderos que cualquier acuerdo momentáneo que haya logrado. Es mucho más eficaz lograr la coincidencia de otros con usted a través de sus acciones, sin decir palabra alguna. No explique; demuestre.
-109
 EL SULTÁN Y EL VISIR
 Un visir había servido a su amo durante unos treinta años y era reconocido y admirado por su lealtad, su sinceridad y su devoción a Dios. Su sinceridad, sin embargo, le había ganado en la corte muchos enemigos, que difundieron falsas historias sobre
 su ambigüedad y su perfidia. Día y noche le llenaron los oídos al sultán, hasta que éste también comenzó a desconfiar del inocente visir y al fin condenó a muerte al hombre que le había servido fielmente durante tantos años. En
@@ -1960,7 +1889,6 @@ Autoridad: Reconozca la buena fortuna, a fin de poder elegirla como compañera; 
 INVALIDACIÓN
 Esta ley no admite invalidación alguna. Su aplicación es universal. No se gana nada asociándose con quienes sólo contagian miseria y sus desgracias. En cambio, al acercarse a los afortunados sólo ganará poder y buena suerte. Si ignora esta ley, lo hace bajo su propia responsabilidad.
 LEY N°
-11
 
 ---
 
@@ -1973,7 +1901,6 @@ LEY N°
 ## CRITERIO
 
 Para mantener su independencia, es indispensable que los demás lo quieran y necesiten. Cuanto más confíen y dependan de usted, tanto más libertad usted tendrá. Haga que la gente dependa de usted para lograr su felicidad y prosperidad, y no tendrá nada que temer. Nunca enseñe a los demás lo suficiente como para que puedan arreglárselas sin su ayuda.
-123
 
 ---
 
@@ -2093,7 +2020,6 @@ El punto débil de hacer que otros dependan de usted reside en que, en cierta me
 Pero no hay independencia de este tipo que no tenga su precio. Usted se ve obligado a aislarse. Los monopolios a menudo hacen implosión y se autodestruyen a causa de la presión interna. También suelen provocar intensos resentimientos, que llevan a sus enemigos a unirse entre sí para combatirlos. El impulso de ejercer el control absoluto suele resultar infructuoso y conducir a la ruina. La interdependencia sigue siendo la ley de oro, mientras que la independencia es una excepción rara, y a veces fatal. Lo mejor es ubicarse en una posición de dependencia mutua y luego atenerse a esta ley clave, en lugar de buscar su invalidación. De esa forma no sufrirá la terrible presión a la que están expuestos los de arriba, y su superior será en esencia su esclavo, porque él
 dependerá de usted.
 LEY N°
-12
 PARA DESARMAR A SU VÍCTIMA, UTILICE LA FRANQUEZA Y LA GENEROSIDAD EN FORMA SELECTIVA
 
 ---
@@ -2101,7 +2027,6 @@ PARA DESARMAR A SU VÍCTIMA, UTILICE LA FRANQUEZA Y LA GENEROSIDAD EN FORMA SELE
 ## CRITERIO
 
 Un gesto sincero y honesto compensará docenas de actitudes dictadas por la hipocresía y la falsedad. El gesto de franca y honesta generosidad hace bajar la guardia aun al individuo más desconfiado. Una vez que su sinceridad selectiva haya abierto una brecha en la armadura del otro, podrá manipularlo y embaucarlo a su antojo. Un obsequio oportuno —especie de caballo de Troya— podrá cumplir el mismo objetivo.
-131
 FRANCESCO BORRI, CORTESANO Y CHARLATÁN
 Francesco Giuseppe Borri, oriudo de Milán, cuya muerte, ocurrida en 1695, cayó todavía en el siglo era un precursor de esa raza especial de aventurero charlatán, un cortesano
 o "caballero" impostor... Su verdadero período de gloria comenzó después de mudarse a Amsterdam. Allí se adjudicó el título de Medico Universale, mantenía una gran comitiva y conducía un
@@ -2114,7 +2039,6 @@ custodia.
 ## THE POWER OF THE
 
 CHARLATAN, GRETE DE FRANCESCO,
-1939
 132 ILEY N° 12
 
 ---
@@ -2176,7 +2100,6 @@ siempre las cartas sobre la mesa". Sus amigos no lograban dar crédito a lo que 
 En el ámbito del poder nada es inamovible. A veces el engaño abierto ayuda a borrar nuestras huellas, e incluso despierta admiración por la honestidad de nuestra deshonestidad.
 138 I LEY N° 12
 LEY N°
-13
 CUANDO PIDA AYUDA, NO APELE A LA COMPASIÓN O A LA GRATITUD DE LA GENTE, SINO A SU EGOÍSMO
 
 ---
@@ -2184,7 +2107,6 @@ CUANDO PIDA AYUDA, NO APELE A LA COMPASIÓN O A LA GRATITUD DE LA GENTE, SINO A 
 ## CRITERIO
 
 Si necesita recurrir a la ayuda de un aliado, no se moleste en recordarle el apoyo que usted le dio en el pasado, o sus buenas acciones. Lo pasado se ignora o se olvida. Si, en cambio, al formular su pedido de colaboración usted muestra elementos que beneficiarán a la otra persona y hace gran hincapié en ellos, su contrincante responderá con entusiasmo a su solicitud, al detectar el beneficio que podría obtener.
-139
 
 ---
 
@@ -2203,7 +2125,6 @@ la vida, y ellos cantarían para el campesino, aliviando así sus labores. El ca
 Cuando, llegó a un hueco en el centro del manzano, encontró un panal lleno de miel. Después de probar la miel, dejó el hacha y, considerando sagrado al árbol, lo cuidó con gran dedicación.
 Lo único que motiva al hombre es el interés
 personal. FÁBULAS, ESOPO, FINES DEL SIGLO VI
-A. C.
 140 I LEY N° 13
 TRANSGRESIÓN DE LA LEY
 A principios del siglo xiv, el joven Castruccio Castracani, que era un simple soldado raso, llegó a ser príncipe de la gran ciudad de Lucca, en Italia. Una de las familias más poderosas de la ciudad, los Poggio, había contribuido a su meteórico ascenso (obtenido mediante traiciones y hechos sangrientos), pero una vez que Castracani estuvo en el poder, los Poggio sintieron que su protegido los había olvidado. La ambición del joven era más grande que la gratitud que pudiera sentir. En 1325, mientras Castruccio luchaba contra Florencia, la principal rival de Lucca, los Poggio conspiraron con otras familias nobles de la ciudad para librarse del ambicioso príncipe.
@@ -2264,7 +2185,6 @@ Quizás algunas personas consideren desagradable y poco noble que alguien apele 
 No sea tímido. Concédales la oportunidad. Al pedirles ayuda no los estafa ni se aprovecha de ellos: en realidad, dar (y que los vean dando) les causa gran placer. Usted deberá aprender a detectar las diferencias entre los poderosos de una y otra clase, y a determinar qué es lo que los motiva. Cuando emanan codicia, no apele a la caridad. Cuando quieren parecer nobles y caritativos, no apele a la codicia.
 LEY N° 13	145
 LEY N°
-14
 MUÉSTRESE COMO UN AMIGO PERO ACTÚE COMO UN ESPÍA
 
 ---
@@ -2272,7 +2192,6 @@ MUÉSTRESE COMO UN AMIGO PERO ACTÚE COMO UN ESPÍA
 ## CRITERIO
 
 Es de fundamental importancia saberlo todo sobre su rival. Utilice espías para reunir información valiosa que le permita mantener siempre una ventaja sobre él. Y mejor aún: haga usted mismo de espía. Aprenda a sondear con cuidado a la gente en corteses encuentros sociales. Formule preguntas indirectas para lograr que el otro revele sus intenciones y sus debilidades. Toda ocasión es buena para ejercer el arte del espionaje.
-146
 
 ---
 
@@ -2332,7 +2251,6 @@ Inglaterra. Lo que no sabían era que aquellos agentes habían sido descubiertos
 Las bombas caían cada vez más lejos de sus objetivos. Al final de la campaña, caían sobre pastizales, en el campo. Cuando usted suministra información equivocada, obtiene una gran ventaja. Si el espionaje le otorga un tercer ojo, la desinformación anula uno de los dos ojos de su enemigo, que, convertido en cíclope, nunca dará en el blanco.
 152	LEY N° 14
 LEY N°
-15
 
 ---
 
@@ -2345,7 +2263,6 @@ LEY N°
 ## CRITERIO
 
 Empezando por Moisés, todos los grandes líderes de la historia sabían que era necesario aplastar por completo al enemigo al que temían. (En algunas oportunidades aprendieron esta lección a fuerza de golpes.) Si se deja encendida una sola brasa, por muy débil que sea, siempre se corre el riesgo de que vuelva a desencadenarse un incendio. Se ha perdido más por una aniquilación a medias que por una exterminación total: el enemigo se recuperará y buscará venganza. Destrúyalo por comple- to, no sólo física sino también espiritualmente.
-153
 Los restos de un enemigo pueden volver a cobrar vida, como una enfermedad o una fogata. Por lo tanto, al
 enemigo debe exterminárselo por
 completo... Nunca se debe ignorar
@@ -2459,7 +2376,6 @@ Por último, a veces, al aplastar al enemigo usted genera tanta
 amargura y ponzoña que el otro pasará años y años planeando su venganza. El Tratado de Versailles tuvo ese efecto en los alema- nes. Algunos afirmaron que, en el largo plazo, habría sido mejor mostrar cierta indulgencia. El problema de la indulgencia es que implica otro riesgo: puede hacer que el enemigo, que aún alberga profundos resentimientos, se torne más audaz al ver que tiene cierto espacio para operar. Por lo general, siempre es más inteligente aplastar al enemigo. Si, años más tarde, quiere vengarse, no baje la guardia y aplástelo de nuevo.
 LEY N" 15	161
 LEY N°
-16
 
 ---
 
@@ -2594,7 +2510,6 @@ De forma similar, también en el amor y en la seducción la ausencia sólo resul
 Recuerde: Al principio de cualquier relación, procure ser omnipresente. Sólo lo que se puede ver, apreciar y amar puede ser extrañado en su ausencia.
 170	LEY N° 16
 LEY N°
-17
 MANTENGA EL SUSPENSO. MANEJE EL ARTE DE LO IMPREDECIBLE
 
 ---
@@ -2602,7 +2517,6 @@ MANTENGA EL SUSPENSO. MANEJE EL ARTE DE LO IMPREDECIBLE
 ## CRITERIO
 
 El ser humano es hijo del hábito y tiene una necesidad insaciable de sentirse familiarizado con las actitudes de quienes lo rodean. Si usted se muestra predecible, confie- re a los demás la sensación de tener cierto control sobre usted. Invierta los papeles: muéstrese deliberadamente impredecible. Las actitudes que en apariencia carecen de coherencia o propósito desconcertarán a los demás, que se agotarán tratando de explicarse sus movimientos y ac- ciones. Llevada a un extremo, esta estrategia puede intimidar y aterrorizar.
-171
 172 I LEY N° 17
 
 ---
@@ -2669,7 +2583,6 @@ por sentado que una persona se comportará siempre de acuerdo con sus esquemas p
 Una advertencia: A veces la impredecibilidad puede volverse contra usted, sobre todo si se encuentra en una posición de subordinado. En ciertas ocasiones es mejor dejar que la gente que lo rodea se sienta cómoda y segura, antes que movilizarla y desconcertarla. Demasiada impredecibilidad puede considerarse una señal de indecisión o —algo mucho más grave— un problema psíquico. Los esquemas son un arma poderosa y pueden aterrar a la gente si se los rompe. Ese tipo de poder deberá utilizarse con mucha prudencia.
 178 I LEY N° 17
 LEY N°
-18
 NO CONSTRUYA FORTALEZAS PARA PROTEGERSE: EL AISLAMIENTO
 
 ---
@@ -2683,7 +2596,6 @@ NO CONSTRUYA FORTALEZAS PARA PROTEGERSE: EL AISLAMIENTO
 ## CRITERIO
 
 El mundo es un sitio peligroso y los enemigos acechan por doquier; todos necesitan protegerse. Una fortaleza se presenta como la alternativa más segura. Pero el aislamiento lo expone más de lo que lo protege de los peligros que lo rodean, ya que lo aísla de información valiosa y lo destaca como un blanco fácil para los demás. Es mucho más seguro circular, mezclarse entre la gente y buscar aliados. La multitud lo protege de sus enemigos.
-1179
 LA MÁSCARA DE LA MUERTE ROJA
 Desde hacía mucho tiempo que la "Muerte
 Roja" venía devastando el país. Nunca hubo pestilencia tan fatal ni tan terrible. Su característica y sello era la sangre, el rojo color y el horror de la sangre. Ocasionaba dolores agudos y vértigo repentino, y luego profusas hemorragias de los poros, con disolución de los tejidos... Y el ataque, la evolución y el desenlace de la enfermedad se producían en menos de
@@ -2782,7 +2694,6 @@ comenzado su obra en prisión, donde no hay nada que hacer, salvo pensar. Maquia
 Sin embargo, el riesgo reside en que ese tipo de aislamiento puede engendrar ideas extrañas y perversas. Uno podrá obtener una mayor perspectiva del panorama general, pero perderá el sentido de su propia pequeñez y de sus limitaciones. Además, cuanto más aislado se encuentre, tanto más difícil le resultará salir de ese aislamiento cuando lo decida: es algo que lo va tragando como las arenas movedizas, sin que usted pueda darse cuenta. Si necesita tiempo para pensar, elija el aislamiento sólo como último recurso y, además, en pequeñas dosis. No deje de mantener abierto el camino de regreso a la sociedad.
 /S6	LEY N° 18
 LEY N°
-19
 SEPA CON QUIÉN ESTÁ TRATANDO: NO OFENDA A LA PERSONA EQUIVOCADA
 
 ---
@@ -2790,11 +2701,9 @@ SEPA CON QUIÉN ESTÁ TRATANDO: NO OFENDA A LA PERSONA EQUIVOCADA
 ## CRITERIO
 
 En el mundo hay muchas clases de personas diferentes, y usted no puede suponer que todos reaccionarán de la misma manera frente a sus estrategias. Hay ciertas personas que, si usted las manipula o engaña, pasarán el resto de su vida procurando vengarse. Serán, desde el momento de la ofensa, lobos con piel de cordero. Elija con cuidado a sus víctimas y a sus contrincantes, y nunca ofenda o engañe a la persona equivocada.
-187
 Cuando se encuentre ante un espadachín, saque la espada: no recite poesías frente a alguien que no es
 poeta.
 DE UN CLÁSICO BUDISTA DE CH'AN, CITADO EN THUNDER IN THE SKY, TRADUCIDO POR THOMAS CLEARY,
-1993
 
 ---
 
@@ -2910,7 +2819,6 @@ INVALIDACIÓN
 ¿ Qué podría tener de positivo el no conocer a la gente? Aprenda a diferenciar a los leones de los corderos, o pagará el precio de su ignorancia. Observe la presente ley al pie de la letra. No existe invalidación alguna, así que no se moleste en buscarla.
 LEY N° 19	I19.5
 LEY N°
-20
 
 ---
 
@@ -3082,7 +2990,6 @@ Ambas partes de esta ley se volverán contra usted si las lleva demasiado lejos.
 Aun así, la clave reside en mantener su independencia interior y evitar involucrarse emocionalmente. Conserve la tácita opción de poder irse en cualquier momento y reclamar su liber- tad si la parte con la que se ha aliado comienza a desmoronarse. Las amistades que forjó mientras era cortejado le darán muchos sitios alternativos hacia los cuales dirigirse.
 208 i LEY N° 20
 LEY N°
-21
 FINJA CANDIDEZ PARA ATRAPAR A LOS CÁNDIDOS: MUÉSTRESE MÁS TONTO QUE SU VÍCTIMA
 
 ---
@@ -3090,7 +2997,6 @@ FINJA CANDIDEZ PARA ATRAPAR A LOS CÁNDIDOS: MUÉSTRESE MÁS TONTO QUE SU VÍCTI
 ## CRITERIO
 
 A nadie le gusta sentirse más estúpido que los demás. Por lo tanto, el truco consiste en hacer sentir sagaces e inteli- gentes a sus víctimas y, sobre todo, más sagaces e inteligentes que usted. Una vez que las haya convencido de esto, nunca sospecharán que usted tiene motivaciones ocultas contra ellos.
-209
 
 ---
 
@@ -3160,7 +3066,6 @@ En cierta oportunidad, el ~dm/u/Joseph Duveen asistía a una velada en el hogar 
 Duveen sabía que el mercado estaba inundado de falsificacio- nes y que muchos cuadros habían sido atribuidos erróneamente a grandes maestros de la pintura. Solía hacer lo posible para diferenciar las obras auténticas de las copias, pero, en su afán por vender, a menudo exageraba con respecto a la autenticidad de algún cuadro. Lo que le importaba era que el comprador quedara convencido de haber adquirido un Durero, y Duveen convencía a todos de su pericia, con su aire de irreprochable autoridad. Por lo tanto, es importante saber desempeñar el papel de profesor cuando sea necesario, pero nunca adoptar tal actitud con el único objetivo de lucirse.
 216 I LEY N° 21
 LEY N°
-22
 UTILICE LA TÁCTICA DE LA CAPITULACIÓN. TRANSFORME LA DEBILIDAD EN PODER
 
 ---
@@ -3168,7 +3073,6 @@ UTILICE LA TÁCTICA DE LA CAPITULACIÓN. TRANSFORME LA DEBILIDAD EN PODER
 ## CRITERIO
 
 Cuando usted sea el más débil, nunca luche simplemen- te por salvar su honor. Opte, en cambio, por la capitulación. Rendirse le dará tiempo para recuperarse, tiempo para atormentar e irritar al vencedor, tiempo pa- ra esperar a que el poder de éste se diluya. No le dé la satisfacción de luchar y ser vencido por él. Capitule an- tes de ser derrotado. Al volver la otra mejilla, enfurecerá y desconcertará a su contrincante. Convierta la capitu- lación en un instrumento de poder.
-217
 EL CASTAÑO Y LA HIGUERA
 Un hombre que se había subido a una higuera estaba doblando las ramas y arrancando la fruta madura, que después se llevó a la boca para destruirla y masticarla con sus duros dientes. El castaño, al ver aquello, sacudió sus largas ramas y con gran rumor de hojas exclamó: "1 Oh, higuera! Cuánto menos protegida que yo estás por la naturaleza.
 Fíjate qué bien protegidos están mis dulces hijos: primero los abriga una blanda envoltura, recubierta a su vez por una cáscara dura pero suavemente forrada por dentro. Y, no contenta con tanto cuidado, la naturaleza nos ha dado esta cubierta de espinas puntiagudas, a fin de que la mano del hombre no pueda
@@ -3203,7 +3107,6 @@ Durante 4-os años siguientes, Brecht escribió guiones de tendencia marcadament
 Voltaire vivía en el exilio, en Londres, en una época en qua los sentimientos antifranceses habían alcanzado su apogeo. Cierto día, mientras caminaba por la calle, se encontró rodeado por una multitud furiosa. "¡A la horca, a la horca con el francés!", gritaba la gente. Voltaire se dirigió con mucha calma a la muchedumbre y dijo: "¡Hombres de Inglaterra! Ustedes quieren mi muerte porque soy francés.
 ¿No les parece ya suficiente castigo el no haber nacido inglés?". Ante esas palabras, la multitud lo vitoreó y lo escoltó hasta que llegó sano y salvo al lugar donde se alojaba.
 THE LITTLE, BROWN BOOK OF ANECDOTES, CLIFTON FADIMAN, ED.,
-1985
 LEY N° 22	219
 220 1 LEY N° 22
 infiltración comunista en Hollywood. El Comité empezó a reunir información sobre Brecht, que de manera tan abierta se había plegado al marxismo, y el 19 de septiembre de 1947, sólo un mes antes de la fecha en que había previsto abandonar los Estados Unidos, lo citaron a comparecer ante el Comité. Además de Brecht, también fueron citados numerosos escritores, productores y directores cinematográficos, grupo que luego fue conocido como "Hollywood 19".
@@ -3247,7 +3150,6 @@ Sin embargo, el martirio —lo opuesto a la rendición— es una táctica despro
 Cuando el poder lo abandona, lo mejor es ignorar la invalidación de esta Ley. Deje que otros se conviertan en mártires; con el tiempo, el péndulo volverá- a ubicarse a su favor y usted estará vivo para verlo y disfrutarlo.
 LEY N° 22 I 225
 LEY N°
-23
 
 ---
 
@@ -3260,7 +3162,6 @@ LEY N°
 ## CRITERIO
 
 Conserve sus fuerzas y su energía, manteniéndolas con- centradas en su punto más fuerte. Ganará más descubriendo un rico yacimiento y explotándolo en pro- fundidad, que pasando de un yacimiento pobre a otro: la intensidad siempre triunfa sobre la dispersión. Cuan- do busque fuentes de poder que puedan promoverlo, procure encontrar siempre el patrón clave único, la va- ca lechera que pueda ordeñar durante largo tiempo.
-226
 TRANSGRESIÓN DE LA LEY
 En China, a principios del siglo vi a.C., el reino de Wu inició tina
 guerra con las vecinas provincias del norte del Reino del Medio. Wu era una potencia en expansión pero carecía de la gran historia y civilización del Reino del Medio, que durante siglos había sido el centro de la cultura china. Al derrotar al Reino del Medio, el rey Wu elevaría de inmediato su posición.
@@ -3347,7 +3248,6 @@ Atarse a una sola fuente de poder implica un riesgo fundamental: que si esa pers
 Por último, concentrarse con demasiada exclusividad en un
 solo objetivo puede convertirlo en un individuo intolerablemente aburrido, sobre todo en el ámbito de las artes. El pintor renacentista Paolo Uccello estaba tan obsesionado con la perspectiva, que sus cuadros carecen de vida y fuerza. A Leonardo da Vinci, en cambio, le interesaba todo: la pintura, la arquitectura, las artes bélicas, la escultura, la mecánica. La dispersión fue la fuente de su poder. Pero ese tipo de genio es muy raro; para la mayoría suele ser mejor pecar de intensidad que de dispersión.
 LEY N°
-24
 DESEMPEÑE EL PAPEL DEL CORTESANO PERFECTO
 
 ---
@@ -3355,7 +3255,6 @@ DESEMPEÑE EL PAPEL DEL CORTESANO PERFECTO
 ## CRITERIO
 
 El cortesano perfecto, adulador e intrigante, prospera y alcanza su plenitud en un mundo en el cual todo gira en torno del poder y de la habilidad política. Domina a la perfección el arte de la oblicuidad. Adula, se somete a sus superiores y reafirma su poder sobre los demás de la forma más encantadora y graciosamente indirecta y falsa. Aprenda a aplicar las leyes del cortesano, y su ascenso dentro de la corte no conocerá límites.
-233
 
 ---
 
@@ -3570,7 +3469,6 @@ Los cortesanos son como los magos: juegan sutilmente con las apariencias y sólo
 Talleyrand era el Gran Prestidigitador de la Corte y, de no haber sido por el ayudante de Napoleón, quizás habría logrado complacer a su amo y al mismo tiempo divertirse a su costa. Pero el cortejo es un arte sutil, y un detalle que se haya pasado por alto o un error inadvertido pueden arruinar el mejor truco. Nunca se arriesgue a ser descubierto en sus maniobras. Nunca permita que la gente descubra sus tretas. Si esto sucede, de inmediato dejarán de considerarlo un hábil cortesano y lo condenarán por tosco y detestable. Éste es un juego muy delicado: dedique la máxima atención al modo de cubrir sus huellas, y nunca permita que su amo lo desenmascare.
 LEY N° 24	247
 LEY N°
-25
 
 ---
 
@@ -3583,7 +3481,6 @@ LEY N°
 ## CRITERIO
 
 No acepte los papeles que la sociedad le ha endilgado. Fórjese una nueva identidad que atraiga la atención y nunca aburra al público. Sea el dueño de su propia imagen, en lugar de permitir que otros la definan por us- ted. Incorpore elementos dramáticos en sus gestos y acciones públicas, y su poder se verá reforzado y su per- sonalidad crecerá en forma asombrosa.
-248
 
 ---
 
@@ -3666,7 +3563,6 @@ INVALIDACIÓN
 En realidad no existe invalidación para esta ley tan fundamental: el mal teatro es mal teatro. Incluso parecer natural requiere cierto arte; es decir, actuar. Una mala actuación sólo causa incomodi- dad. Por supuesto, no deberá mostrarse demasiado dramático; evite los gestos histriónicos y exagerados. Pero eso, de todos modos, no es otra cosa que mal teatro, dado que viola las leyes teatrales que condenan la sobreactuacion. En esencia, no existe una situación en que esta ley sea inválida.
 LEY N° 25 I 257
 LEY N°
-26
 
 ---
 
@@ -3918,7 +3814,6 @@ Pero, en realidad, el plan de Catalina era otro: quería que los hugonotes culpa
 Si usted debe usar una pata de gato o un chivo expiatorio en alguna acción de consecuencias importantes, tenga mucho cuidado: el exceso puede dañar. A menudo es más inteligente utilizar este tipo de instrumentos ingenuos en tareas más inocentes, en que los errores de cálculo no llegan a causar un daño demasiado serio.
 Por último, hay momentos en que es preferible no disimular nuestra participación o responsabilidad en un hecho determina- do, sino asumir la responsabilidad de algún error. Si usted tiene poder y se siente seguro, de tanto en tanto debería desempeñar el papel de penitente: con mirada arrepentida, pida perdón a quienes son más débiles que usted. Es la estrategia del rey que hace ostentación de sus sacrificios por el bienestar de su pueblo. De forma similar, en algunas ocasiones querrá que lo vean como un castigador, a fin de infundir temor a sus subordinados. En lugar de utilizar una pata de gato, usted muestra sus propias zarpas en un gesto amenazador. Ésta es, sin embargo i una carta que debe jugar con mucho cuidado y muy raras veces. Si la muestra demasiado a menudo, el temor se transformará en resentimiento y odio. Antes de que se dé cuenta, tales emociones generarán contra usted una violenta oposición que en algún momento podrá derrocarlo. Acostúmbrese a usar la pata de gato: es mucho más seguro.
 LEY N°
-27
 JUEGUE CON LA NECESIDAD DE LA GENTE DE TENER FE EN ALGO, PARA CONSEGUIR SEGUIDORES INCONDICIONALES
 
 ---
@@ -3926,7 +3821,6 @@ JUEGUE CON LA NECESIDAD DE LA GENTE DE TENER FE EN ALGO, PARA CONSEGUIR SEGUIDOR
 ## CRITERIO
 
 La gente tiene una necesidad irrefrenable de creer en algo. Conviértase en el centro focalizador de esa necesidad, ofreciéndoles una causa o una nueva convicción a la que adherir. Formúlela en términos vagos pero pletóricos de promesas. Enfatice el entusiasmo por sobre el pensamiento claro y racional. Dé a sus nuevos discípulos rituales que realizar y exíjales sacrificios. Ante la ausencia de una religión organizada y grandes causas en las que puedan creer, su nuevo sistema de convicciones le conferirá un poder inaudito.
-275
 
 ---
 
@@ -3955,7 +3849,6 @@ charlatán estaba conformado por los semianalfabetos, aquellos que habían cambi
 La gran masa de la humanidad siempre ha estado predispuesta a asombrarse ante los misterios, y esto fue particularmente cierto en determinados períodos históricos en que los fundamentos seguros de la vida perdían estabilidad, y los viejos valores, económicos o espirituales, durante largo tiempo aceptados como algo inamovible, ya no resultaban confiables. Entonces la cantidad de ingenuas víctimas del charlatán se multiplicó: los "asesinos de sí mismos", como los denominó un inglés del siglo XVII.
 THE POWER OF THE CHARLATAN,
 GRETE DE FRANCESCO,
-1939
 EL BÚHO QUE ERA DIOS
 En una medianoche oscura y sin estrellas, había una vez un búho, sentado sobre la rama de un roble. Dos topos trataron de escurrirse en la oscuridad y pasar inadvertidos. "¡Eh, ustedes dos!", dijo el búho. "¿Quiénes dos?", respondieron los topos con voz trémula, asustados y sorprendidos, dado que no podían creer que alguien pudiese
 I9 77
@@ -4026,7 +3919,6 @@ Con el correr de los años, la fama del Doctor de las Montañas fue creciendo. L
 se usaban en las cortes persas. El aposento en el cual se encontraba ubicada aquella cama era llamado el Sanctum Sanctorum... Para completar la escena, se oían notas melodiosas de armónicas, flautas suaves, cánticos de dulces voces y un gran órgano".
 THE POWER OF THE CHARLATAN,
 GRETE DE FRANCESCO,
-1939
 
 ---
 
@@ -4092,7 +3984,6 @@ Una de las razones de generar seguidores es que un grupo suele ser más fácil d
 Por eso, quizás en ocasiones prefiera tratar con la gente en forma individual. Aislar a una persona de su entorno habitual puede producir el mismo efecto que insertarla en un grupo: la forma más susceptible a la sugestión y a la intimidación. Elija al incauto adecuado, y si en algún momento éste adivina la verdad, usted podrá escapar con más facilidad de él que de una multitud.
 235 I LEY N° 27
 LEY N°
-28
 
 ---
 
@@ -4215,7 +4106,6 @@ con gesto triunfante: 'A pesar de que sus ropas eran harapos, hablaba con clarid
 de vergüenza o inferioridad, a diferencia de tanta gente que quiere pedir dinero que no piensa devolver. Un hombre de este tipo es un loco, o bien está muy seguro de los negocios que hará. A juzgar por su mirada firme y su voz altisonante, se trata de
 un hombre extraordinario con un cerebro superhumano, que bien vale mi confianza. Conozco de dinero y conozco a los hombres. El dinero a menudo hace que un hombre sea pequeño, pero un hombre como éste es capaz de hacer grande al dinero. Me siento feliz de haberlo ayudado a hacer un buen negocio."
 BEHIND THE SCENES OF ROYAL PALACES IN KOREA, HA TAE-HUNG,
-1983
 El temor, que siempre magnifica las cosas, da cuerpo a todas las fantasías, que toman la forma de lo que crean que existe en los pensamientos del enemigo; es así como la persona temerosa raras veces deja de enfrentar problemas reales, ocasionados por peligros imaginarios... Y el duque, cuyo
 cómo los Shuisky entraban en el cuarto y apaleaban sin piedad al Metropolitano.
 Iván tenía un amigo en el palacio, un boyardo de nombre Vo- rontsov, que lo consolaba y asesoraba. Cierto día en que él, Vorontsov y el nuevo Metropolitano estaban conversando en el refectorio del palacio, varios Shuisky irrumpieron en el recinto, golpearon a Vorontsov e insultaron al religioso desgarrando y pisoteando sus vestiduras. Luego desterraron de Moscú a Vorontsov.
@@ -4270,7 +4160,6 @@ La timidez no tiene cabida en el ámbito del poder; no
 obstante, podrá beneficiarse con ella si la simula. En tal caso, por supuesto, deja de ser timidez para convertirse en un arma ofensiva: usted atrae a la gente con su fingida timidez, para poder asestar luego el zarpazo audaz.
 29S	LEY N° 28
 LEY N°
-29
 
 ---
 
@@ -4283,7 +4172,6 @@ LEY N°
 ## CRITERIO
 
 Un final brillante constituye el corolario que da énfasis a todo su accionar. Planifique su camino teniendo en cuenta todas las consecuencias posibles, todos los obstáculos y todos los giros del azar que puedan incidir de manera negativa sobre su trabajosa elaboración y otorgar la gloria a otros. Planificar todo un proceso, de principio a fin, evitará que lo abrumen los factores negativos y le permitirá saber con exactitud cuándo detenerse. Maneje la fortuna con cuidado y determine el futuro planificando a largo plazo.
-299
 Hay muy pocos hombres —y constituyen las excepciones— capaces de pensar y sentir más allá del momento
 presente.
 
@@ -4322,7 +4210,6 @@ De todos modos, Balboa no se sintió muy tranquilo. El oro era su sueño; encont
 Mira hasta el final, sea lo que fuere lo que estés contemplando. A menudo Dios otorga al hombre un breve instante de felicidad, para luego arruinarlo por completo.
 LAS HISTORIAS,
 HERODOTO, SIGLO V
-A.C.
 EL REY, EL SUFÍ Y EL CIRUJANO
 En tiempos antiguo.; un rey de Tartaria había salido a caminar en compañía de algunos de sus nobles. Al costado del camino había un abdal (un sufí peregrino) que gritaba: "A quienquiera que me dé cien dinares, le daré a cambio un buen consejo".
 El rey se detuvo y le dijo: "Abdal, ¿cuál es el buen consejo que das por cien dinares?" . "Señor —contestó el abdal—, ordena que me entreguen esa suma, y te lo diré de inmediato." As! lo hizo el rey, esperando oír algo extraordinario. El derviche le dijo: "Mi consejo es éste: nunca comiences nada sin haber reflexionado cuál será el final de tu empresa". Al oírlo, los
@@ -4405,7 +4292,6 @@ Es una fórmula conocida entre estrategas que "un plan debe incluir alternativas
 La mayoría de la gente, sin embargo, pierde menos por pla- near en exceso que por la vaguedad y la tendencia a improvisar frente a las circunstancias. Por lo tanto, no tiene demasiado sentido analizar una contraposición de esta ley, dado que nada bueno podrá resultar si uno se niega a prever el futuro no inmediato y a planear hasta el desenlace final. Si usted tiene claros sus objetivos y sabe prever, comprenderá que el futuro es incierto y que usted debe mantenerse abierto a las posibilidades de adecuación. Pero sólo el tener objetivos claros y un plan a largo plazo le permite hacer uso de esa libertad.
 308 I LEY N° 29
 LEY N°
-30
 
 ---
 
@@ -4533,7 +4419,6 @@ También hay momentos en los que revelar los mecanismos internos que conducen a 
 Siempre y cuando la revelación parcial de' sus técnicas y triquiñuelas sea algo cuidadosamente planificado„ y no resultado de una incontrolable necesidad de parlotear, puede constituir una sagacidad llevada a su máxima expresión. Otorgará a su público la ilusión de ser superior y participar, aun cuando gran parte de lo que usted hace permanezca oculto.
 318 ILEY N° 30
 LEY N°
-31
 CONTROLE LAS OPCIONES: HAGA QUE OTROS JUEGUEN CON LAS CARTAS QUE USTED REPARTE
 
 ---
@@ -4541,7 +4426,6 @@ CONTROLE LAS OPCIONES: HAGA QUE OTROS JUEGUEN CON LAS CARTAS QUE USTED REPARTE
 ## CRITERIO
 
 El mejor engaño es aquel que aparenta ofrecer opciones al otro: sus víctimas sienten que controlan la situación, pero en realidad no son sino títeres en sus hábiles manos. Presente opciones que siempre le sean favorables, independientemente de cuál de ellas elijan los demás. Oblíguelos a optar entre el menor de dos males y logre que cualquiera de las dos elecciones resulte a favor de usted. Haga que cualquier alternativa por la que se decidan sus rivales los perjudique a ellos y lo beneficie a usted.
-319
 El canciller alemán Bismarck, furioso ante las constantes críticas de Rudolf Virchow (patólogo y político liberal alemán), pidió a sus ayudantes que visitaran al científico para desafiarlo a un duelo. "Como soy la parte desafiada, puedo elegir las armas, y elijo éstas —dijo Virchow, levantando dos salchichas largas y, en apariencia, idénticas—. Una de éstas está infectada con gérmenes patógenos letales; la otra está en perfectas condiciones. Que Su Excelencia decida cuál de las dos quiere comer, y yo comeré la
 otra." Casi de inmediato, Virchow recibió la respuesta de que el canciller había decidido cancelar el
 duelo.
@@ -4587,7 +4471,6 @@ El rey, al darse cuenta de que el hombre quería tenderle una trampa, trató de 
 Señor." El rey comprendió que no tenía escapatoria y le entregó la manzana
 de oro.
 CUENTOS POPULARES Y FÁBULAS ARMENIAS NARRADAS POR CHARLES DOWNING,
-1993
 322	LEY N° 31
 a actuar de determinada manera, pero lo hace en forma indirecta: así los convence de que pueden elegir. Cuando la gente siente que puede elegir, cae en la trampa con mucha mayor facilidad.
 
@@ -4652,7 +4535,6 @@ Controlar las opciones tiene un objetivo principal: disimular el papel de usted 
 Por otra parte, al limitar las opciones de los demás a veces también se limitan las opciones propias. Hay situaciones en las cuales resultará ventajoso que usted permita a sus adversarios un amplio grado de libertad: al verlos operar, usted tiene buenas oportunidades para espiar, reunir información y planificar su engaño. El banquero James Rothschild solía aplicar este método: consideraba que, si trataba de controlar los movimientos del adversario, perdía la oportunidad de observar la estrategia de éste y planificar un curso de acción más eficaz. Cuanto más libertad les permitía en el corto plazo, tanto más eficientemente podía actuar contra ellos en el largo plazo.
 321	LEY N" 31
 LEY N°
-32
 JUEGUE CON LAS FANTASÍAS DE LA GENTE
 
 ---
@@ -4660,7 +4542,6 @@ JUEGUE CON LAS FANTASÍAS DE LA GENTE
 ## CRITERIO
 
 Muchas veces se evita la verdad porque suele ser dura y desagradable. Nunca recurra a la verdad ni a la realidad, salvo que esté dispuesto a enfrentar la ira que genera la desilusión. La vida es tan dura y problemática que aquellas personas capaces de inventar ilusiones o conjurar fantasías son como oasis en el desierto: todos van hacia ellas. Apelar a las fantasías de las masas es una fuente inmensa de poder.
-329
 
 ---
 
@@ -4770,7 +4651,6 @@ DESCUBRA EL TALÓN DE AQUILES DE LOS DEMÁS
 ## CRITERIO
 
 Todo individuo tiene un punto débil, una fisura en la muralla que rodea su fortaleza. Por lo general, esa debilidad es algo que le causa inseguridad, o una emoción o una necesidad que lo supera. También puede ser un pequeño placer secreto. Sea lo que fuere, una vez que usted la haya descubierto esa debilidad se convierte en un elemento de presión que podrá manejar a su antojo y, por supu?sto, siempre a su favor.
-338
 CÓMO DESCUBRIR EL TALÓN DE AQUILES:
 Un plan de acción estratégico.
 Todos tenemos resistencias. Vivimos cubiertos por una perpetua armadura, a fin de defendernos del cambio y la acción invasora de amigos o rivales. Nada nos gustaría más que nos dejaran en paz para poder hacer las cosas a nuestra manera. Luchar sin cesar contra estas resistencias le costará mucha energía. Una de las cosas más importantes que hay que comprender con respecto a la gente es que todos tienen alguna debilidad, alguna parte de su armadura psicológica que no resistirá, que cederá ante la voluntad de usted, si la encuentra y la presiona. Algunas personas demuestran abiertamente sus debilidades; otras tratan de disimularlas. Quienes las disimulan suelen ser los que más rápidamente se desmoronan cuando uno encuentra ese hueco en su armadura.
@@ -4974,7 +4854,6 @@ En sus juegos de poder, siempre deberá mirar varios pasos más adelante y plani
 Cuanto más emocional sea el punto débil del otro, mayor será el riesgo potencial. Conozca los límites de este juego y nunca se deje llevar por las ansias de controlar al otro. Lo que usted busca es poder, no la emoción de dominar.
 350 I LEY N' 33
 LEY N°
-34
 ACTÚE COMO UN REY PARA SER
 
 ---
@@ -4988,7 +4867,6 @@ ACTÚE COMO UN REY PARA SER
 ## CRITERIO
 
 Su forma de actuar determinará cómo lo tratarán los demás: a la larga, una presencia vulgar o común hará que la gente le pierda el respeto. Porque un rey se respeta a sí mismo e inspira el mismo sentimiento en los demás. Al adoptar una actitud de rey, mostrando confianza en su propio poder, logrará que lo consideren destinado a llevar una corona real sobre la cabeza.
-351
 Nunca pierda el respeto por usted mismo ni se muestre demasiado relajado cuando está a solas. Haga que su integridad sea su propio estándar de rectitud, y dependa más de la severidad de su propio juicio sobre su persona que de todos los preceptos externos. Desista de toda conducta indecorosa, más por respeto a su propia virtud que a las prescripciones de cualquier autoridad externa. Respétese a usted mismo y no necesitará del tutor imaginario de Séneca.
 BALTASAR GRACIÁN,
 1601-1658
@@ -5085,7 +4963,6 @@ Carlos I, rey de Inglaterra durante la década de 1640, tuvo que enfrentar la pr
 Por último, es cierto que a veces usted puede detener algún poder simulando una suerte de vulgaridad, que quizás hasta resul- te divertida. Pero si se extralimita en este juego, si intenta diferenciarse de los demás mostrándose aún más vulgar que ellos, correrá serios riesgos: siempre habrá gente más vulgar que usted, así que usted será pronto reemplazado por alguien más joven y más ordinario.
 360 ILEY N° 34
 LEY N°
-35
 
 ---
 
@@ -5098,7 +4975,6 @@ LEY N°
 ## CRITERIO
 
 Nunca demuestre tener prisa, ya que el apuro delata una falta de control sobre el tiempo y sobre su propio accionar. Muéstrese siempre paciente, como si supiera que, con el tiempo, todos sus deseos se cumplirán. Conviértase en especialista en el arte de detectar el momento propicio para cada cosa. Descubra el espíritu de los tiempos actuales y las tendencias que lo llevarán al poder. Aprenda a mantenerse a la expectativa cuando el momento propicio no haya llegado, y a golpear con fuerza cuando la oportunidad le sea propicia.
-361
 LA LECCIÓN DE
 
 ---
@@ -5236,7 +5112,6 @@ INVALIDACIÓN
 No se puede ganar poder alguno soltando las riendas y adaptándo- se a lo que el tiempo quiera traer. En cierta medida, usted deberá dirigir el tiempo, o de lo contrario se convertirá en su víctima. Por lo tanto, no hay ningún caso en que esta ley no sea válida.
 370	LEY N. 3>
 LEY N°
-36
 MENOSPRECIE LAS COSAS QUE NO PUEDE OBTENER: IGNORARLAS ES LA MEJOR DE LAS VENGANZAS
 
 ---
@@ -5244,7 +5119,6 @@ MENOSPRECIE LAS COSAS QUE NO PUEDE OBTENER: IGNORARLAS ES LA MEJOR DE LAS VENGAN
 ## CRITERIO
 
 Al prestar atención a un problema trivial, lo convierte en real y le confiere importancia. Cuanta más atención le preste a un enemigo, tanto más lo fortalecerá. Y, a menudo, un pequeño error se magnifica en el intento de corregirlo. A veces, lo mejor es dejar ciertas cosas por completo de lado. Si hay algo que usted desea pero no puede obtener, menosprécielo. Cuanto menos interés demuestre, mayor será el nivel de superioridad que verán los demás en usted.
-371
 
 ---
 
@@ -5261,7 +5135,6 @@ En cierta oportunidad en que George Bernard Shaw se burló por escrito de la vis
 —respondió Chesterton—, yo le he contestado. Para un hombre del ingenio de Shaw, el silencio es la más intolerable de las
 réplicas."
 THE LITTLE, BROWN BOOK OF ANECDOTES, CLIFTON FADIMAN, ED.,
-1985
 372 I LEY N° 36
 TRANSGRESIÓN DE LA LEY
 El líder rebelde mexicano Pancho Villa comenzó siendo el jefe de un grupo de bandidos, pero después de estallar la revolución en México, en 1910, se convirtió en una especie de héroe popular que asaltaba ferrocarriles y daba el dinero a los pobres, lideraba audaces redadas y seducía a las damas con sus románticas aventuras. Sus acciones fascinaban a los estadounidenses: parecía un hombre de otra época, mitad Robin Hood y mitad Don Juan. Sin embargo, al cabo de algunos años de duras luchas, el general Carranza salió victorioso en la revolución; el derrotado Villa y sus tropas regresaron a sus hogares, en el estado norteño de Chihua- hua. Su ejército se redujo y Villa volvió a dedicarse al bandidaje, lo cual conspiró contra su popularidad. Por último, quizá por de- sesperación, comenzó a luchar contra los Estados Unidos, los gringos, a quienes culpaba de sus problemas.
@@ -5406,7 +5279,6 @@ Es necesario jugar la carta del menosprecio y del desdén con cui- dado y delica
 Desarrolle la habilidad de percibir los problemas mientras todavía sean pequeños y atacarlos antes de que se vuelvan incontrolables o ya no tengan remedio. Aprenda a diferenciar entre lo potencialmente desastroso y lo levemente irritante, es decir, la pequeña molestia que desaparecerá sola. Sin embargo, en cualquiera de los dos casos, nunca descuide el problema por completo. Mientras un problema siga vivo, puede arder y volver a estallar en llamas en cualquier momento.
 310	LEY N. 36
 LEY N°
-37
 ARME ESPECTÁCULOS I MPONENTES
 
 ---
@@ -5414,7 +5286,6 @@ ARME ESPECTÁCULOS I MPONENTES
 ## CRITERIO
 
 Una imaginería impactante y gestos simbólicos grandiosos generan aura de poder, ya que ejercen gran atracción sobre todos. Presente espectáculos imponentes para quienes lo rodean, plenos de elementos visuales fascinantes y radiantes simbolismos, que enfaticen su presencia. Encandilados por las apariencias, los demás no se darán cuenta de lo que usted está haciendo en realidad.
-381
 
 ---
 
@@ -5519,7 +5390,6 @@ INVALIDACIÓN
 No se puede lograr el poder si se ignoran las imágenes y los símbolos. No hay invalidación posible para esta ley.
 LEY N' 37	3S9
 LEY N°
-38
 PIENSE COMO QUIERA, PERO COMPÓRTESE COMO LOS DEMÁS
 
 ---
@@ -5527,7 +5397,6 @@ PIENSE COMO QUIERA, PERO COMPÓRTESE COMO LOS DEMÁS
 ## CRITERIO
 
 Si usted hace ostentación de ir contra la corriente, alardeando acerca de sus ideas poco convencionales y sus actitudes heterodoxas, la gente pensará que usted sólo desea llamar la atención y que desprecia a los demás. Encontrarán la forma de castigarlo por hacerlos sentir inferiores. Es mucho más seguro confundirse con la masa y adoptar un cierto aire "común". Limítese a compartir su originalidad con amigos tolerantes y con aquellas personas de las que está seguro que aprecian su forma de ser diferente y especial.
-390
 TRANSGRESIÓN DE LA LEY
 Alrededor del año 478 a.C., la ciudad de Esparta envió una expe- dición a Persia, al mando del joven noble espartano Pausanias. Las ciudades-estado de Grecia habían repelido recientemente una poderosa invasión de Persia, y ahora Pausanias, junto con los barcos aliados de Atenas, había ordenado castigar a los invasores y recuperar las islas y las ciudades costeras que los persas habían ocupado. Tanto los atenienses como los espartanos tenían gran respeto por Pausanias, quien había demostrado ser un temerario guerrero y poseer un gusto especial por lo dramático.
 Con sorprendente rapidez Pausanias y sus tropas recupera- ron Chipre; luego avanzaron hacia la zona de Asia Menor entonces llamada Helesponto, y capturaron Bizancio (la actual Estambul). Después de haberse adueñado de parte del imperio persa, Pausanias comenzó a mostrar comportamientos que iban más allá de su extravagancia y ostentación habituales. Apareció en público con pomada en el cabello, ataviado con sueltas túni- cas persas y acompañado de una escolta de egipcios. Celebraba opulentos banquetes en los que se sentaba al estilo persa y exigía ser entretenido. Dejó de tratar a sus viejos amigos y entabló comunicación con el rey persa Jerjes. Todo su comportamiento correspondía más a un dictador persa que a un espartano.
@@ -5636,7 +5505,6 @@ Por último, siempre hay un lugar para la persona que desafia con éxito las cos
 que recibía los insultos con agrado. Sin embargo, observemos que su papel de excéntrico, terminó por destruirlo. Y aunque su destino hubiera sido mejor, recuerde que Wilde poseía un genio poco común. Sin ese don de divertir y encantar, sus agresivas críticas simplemente habrían ofendido a la gente.
 LEY N° 38 I 399
 LEY N°
-39
 
 ---
 
@@ -5649,7 +5517,6 @@ LEY N°
 ## CRITERIO
 
 La ira y las emociones son estratégicamente contrapro- ducentes. Siempre deberá mantenerse sereno y objetivo; pero si puede enfurecer a sus enemigos mientras usted conserva la calma, obtendrá una ventaja decisiva. Desubique a sus enemigos: descubra la grieta a través de la cual pueda sacudirlos y manejarlos.
-400
 TRANSGRESIÓN DE LA LEY
 En enero de 1809, un agitado y ansioso Napoleón regresó a toda prisa a París desde el frente de la guerra con España. Sus espías y confidentes habían confirmado el rumor de que su canciller Talleyrand junto con Fouché, su ministro de policía, estaban conspirando contra él. En cuanto llegó a la capital, el consternado emperador convocó a todos sus ministros al palacio. Ya en la reunión, que se realizó inmediatamente después de su arribo, Napoleón comenzó a pasearse de un extremo al otro del recinto mientras despotricaba, sin hacer acusaciones directas, contra los conspiradores, los especuladores que hacían caer el mercado accionario, los legisladores que demoraban sus políticas... y sus propios ministros, que socavaban su poder.
 Mientras Napoleón hablaba, Talleyrand permaneció apoya-
@@ -5791,7 +5658,6 @@ LEY N"
 ## CRITERIO
 
 Todo lo que es gratuito es peligroso, ya que por lo general implica alguna treta o un compromiso oculto. Las cosas que tienen valor valen la pena pagarse. De esta manera, no estará obligado a gratitud alguna, se verá libre de culpa y evitará fraudes y engaños. Lo más inteligente es, a menudo, pagar el precio total. Cuando hablamos de excelencia no hay gangas. Sea generoso con su dinero y hágalo circular, dado que la generosidad es señal e imán de poder.
-409
 
 ---
 
@@ -5864,7 +5730,6 @@ LEY N° 40	413
 Mientras el hijo escuchaba las instrucciones de su padre, el tigre, dio un salto y se internó en el bosque, llevando al anciano hacia donde el
 hijo no podía alcanzarlo, y lo mató.
 "FÁBULA CHINA", VARIOUS FABLES FROM VARIOUS PLACES, DIANE DI PRIMA, ED.,
-1960
 LA HISTORIA DE MOISÉS Y DEL FARAÓN
 Está escrito en las historias de los profetas que Moisés fue enviado ante el faraón con muchos milagros, maravillas y honores. La ración diaria para la mesa del faraón eran 4.000
 ovejas, 400 vacas, 200
@@ -6070,7 +5935,6 @@ mucho que lo haga) que no se puede obtener algo por nada, los delitos se reducir
 La lección es simple: Tienda el anzuelo del engaño con la posibilidad de obtener dinero sin esfuerzo alguno. La gente es en esencia perezosa y quiere que la riqueza le caiga del cielo, en lu- gar de trabajar para alcanzarla. Por una pequeña suma, véndales asesoramiento sobre cómo amasar millones (como hizo P. T Barnum hacia el final de su carrera), y esa pequeña suma se convertirá en una fortuna cuando la multiplique por miles de incautos. Tiente a los demás con la perspectiva de ganar dinero fácil, y después podrá hacerlos víctimas de otros engaños, pues la codicia es tan poderosa como que impide ver cualquier otra cosa. Y, como dijo The Yellow Kid, lo más divertido de todo es ense- ñarles una moraleja: la codicia no da frutos.
 LEY N° 40 I 425
 LEY N°
-41
 
 ---
 
@@ -6255,7 +6119,6 @@ LEY N° 41 I 437
 sólo pudiese conseguir trabajo como asistente suyo. Y cualquier asistente que se rebelara contra Bernini y tratara de imponerse por sí mismo, podía despedirse de su carrera, pues Bernini la arruinaba de manera irremediable.
 438 I LEY N° 41
 LEY N°
-42
 MUERTO EL PERRO, SE ACABÓ LA RABIA
 
 ---
@@ -6263,7 +6126,6 @@ MUERTO EL PERRO, SE ACABÓ LA RABIA
 ## CRITE RI O
 
 Los problemas suelen tener su origen en un solo individuo fuerte: el instigador, el subalterno arrogante, el sembrador de inquinas y resentimientos. Si usted deja espacio para el accionar de este tipo de individuo, otros sucumbirán a la influencia del personaje. No espere a que los problemas que él causa se multipliquen, y no trate de negociar con él, pues es irrecuperable. Neutralice esa influencia, aislándolo o eliminándolo. Recuerde que, muerto el perro, se acabó la rabia.
-439
 LA CONQUISTA DE PERÚ
 La lucha fue tornándose más feroz en torno de la litera real [de Atahualpa, rey del imperio inca]. La litera se ladeaba cada vez más, y al final, ya muertos varios de los
 nobles que la sostenían, se dio vuelta por completo y el príncipe indígena habría dado con violencia contra el suelo de no haber sido su caída amortiguada por los esfuerzos de Pizarro y algunos
@@ -6386,7 +6248,6 @@ INVALIDACIÓN
 Andrew Johnson, el sucesor de Abraham Lincoln como Presidente de los Estados Unidos, consideraba a Ulysses S. Grant como un miembro incómodo y buscapleitos de su gobierno. De modo que lo aisló, para forzarlo a irse. Esto enfureció al poderoso general, que respondió formando un grupo de apoyo en el partido republicano y postulándose para la presidencia. Habría sido más inteligente mantenerlo un poco al margen, a fm de que causara menos daño, que impulsarlo a la venganza. De la misma manera, a menudo podrá encontrarse con que es mejor mantener a una persona a su lado, donde usted pueda vigilarla, que crearse un furioso enemigo. Si lo tiene cerca, podrá ir socavándote lentamente la base, de modo que, cuando llegue el momento, bastará con moverla un poco para que se desmorone por completo.
 448 1 LEY N° 42
 LEY N°
-43
 
 ---
 
@@ -6528,7 +6389,6 @@ INVALIDACIÓN
 No hay ningún caso en que esta ley no sea válida.
 453	LEY N° 43
 LEY N°
-44
 
 ---
 
@@ -6541,7 +6401,6 @@ LEY N°
 ## CRITERIO
 
 El espejo refleja la realidad pero también es el arma perfecta para el engaño: cuando usted refleja a sus enemigos, haciendo exactamente lo que hacen ellos, sus rivales no lograrán deducir su estrategia. El Efecto Espejo los burla y humilla, lo cual los lleva a reaccionar en forma desmedida. Al poner un espejo frente a su psique, usted los seduce con la ilusión de que comparte sus valores. Al reflejar sus acciones en un espejo, les enseña una lección. Son muy pocos los que pueden resistirse al poder del Efecto Espejo.
-459
 
 ---
 
@@ -6654,7 +6513,6 @@ LORENZO DE MÉDICI SEDUCE AL PAPA
 Lorenzo [de Médicil no perdía oportunidad de aumentar el respeto que el papa Inocencio sentía por él, de ganar su amistad y, de ser posible, su afecto. Se tomaba el trabajo de descubrir los gustos del Papa y los satisfacía sin demora. Le enviaba... barriles de su vino preferido... Le enviaba cartas corteses y halagüeñas, en las que le aseguraba, cuando el Papa estaba enfermo, que sentía en carne propia sufrimientos del pontífice, y lo alentaba con afirmaciones tan reconfortantes como: "Un Papa es lo que él quiera ser". Yen esas cartas incluía también, aunque de manera incidental, sus propios puntos de vista sobre el curso más adecuado de las políticas papales.
 Inocencio se sintió muy gratificado por las atenciones de Lorenzo y convencido por sus argumentos... En verdad, llegó a compartir en grado tan completo las opiniones de Lorenzo, que, como dijo el disgustado embajador de Ferrara; "El Papa duerme con los ojos de Lorenzo el Magnífico".
 THE HOUSE OF MEDIU: ITS RISE AND FALL, CHRISTOPHER HIBBERT,
-1980
 LEY N° 44 i 465
 Wittgenstein tenía un extraordinario don para adivinar los pensamientos de las personas con las cuales discutía. Mientras el otro luchaba por encontrar palabras para expresar sus pensamientos, Wittgenstein percibía qué era lo que pensaba y lo formulaba por él. Este poder, que a veces
 parecía casi sobrenatural, era posible, de ello estoy seguro, gracias a sus propias investigaciones
@@ -6662,7 +6520,6 @@ exhaustivas y continuas.
 LUDWIG WITTGENSTEIN:
 A MEMOIR,
 NORMAN MALCOLM,
-1958
 El médico debiera ser opaco frente a sus pacientes y, como un espejo, no mostrar nada salvo lo que a él le sea mostrado.
 SIGMUND FREUD,
 1856-1939
@@ -6779,7 +6636,6 @@ Rehúya estos efectos asociativos como la peste. En una situación reflejada, us
 connotaciones positivas, usted sufrirá por no ser capaz de llegar a la misma altura, dado que el pasado, en general se ve más grande que el presente. Si en algún momento observa que la gente lo asocia con algún hecho o alguna persona del pasado, haga todo lo que pueda para diferenciarse de ese recuerdo y destruir ese reflejo.
 LEY N° 44	477
 LEY N°
-45
 PREDIQUE LA NECESIDAD DE INTRODUCIR CAMBIOS, PERO NUNCA MODIFIQUE DEMASIADO A LA VEZ
 
 ---
@@ -6787,7 +6643,6 @@ PREDIQUE LA NECESIDAD DE INTRODUCIR CAMBIOS, PERO NUNCA MODIFIQUE DEMASIADO A LA
 ## CRITERIO
 
 En teoría, todo el mundo comprende la necesidad del cambio, pero en el nivel cotidiano, el ser humano es hijo de la costumbre. Demasiada innovación resulta traumática y conducirá a la rebelión. Si usted es nuevo en una posición de poder, o un tercero que intenta construir una base de poder, haga alarde de respetar la forma tradicional de hacer las cosas. Si se impone un cambio necesario, hágalo aparecer como una leve modificación positiva del pasado.
-478
 TRANSGRESIÓN DE LA LEY
 A principios de la década de 1520, el rey Enrique viii de Inglaterra decidió divorciarse de su esposa, Catalina de Aragón, porque no le había dado un heredero y porque él, además, se ha- bía enamorado de la joven y bella Ana Bolena. El papa Clemente vi' se opuso y amenazó al rey con la excomunión. El ministro más poderoso del monarca, el Cardenal Wolsey, tampoco consideró necesario el divorcio, y su tibio apoyo al rey le costó primero el cargo y luego la vida.
 Un hombre del gabinete de Enrique vill, Tomás Cromwell, no sólo apoyó su deseo de obtener el divorcio, sino que ideó una manera de realizarlo: romper por completo con el pasado. Convenció al rey de que, si cortaba los lazos con Roma y se designaba él mismo jefe de una nueva Iglesia inglesa, podría di- vorciase de Catalina y casarse con Ana. Para 1531 Enrique decidió que esta propuesta era la única solución. Como recom- pensa por su simple pero brillante idea, elevó a Cromwell, hijo de un herrero, al puesto de consejero real.
@@ -6859,7 +6714,6 @@ Nicolás Maquiavelo, 1469-1527
 
 La psicología humana encierra muchas dualidades, una de las cuales es que, aun cuando comprenda la necesidad de cambio y reconozca la importancia de la ocasional renovación de instituciones e individuos, la gente se siente también irritada y alterada ante los cambios que la afectan en forma personal. Todos saben que el cambio es necesario y que lo novedoso alivia la monotonía y el aburrimiento, pero en lo más íntimo se aferran al pasado. Todos desean el cambio en abstracto, un cambio superfi-
 LEY N° 45
-483
 484 I LEY N° 45
 cial, pero un cambio que modifique de manera fundamental sus hábitos y su rutina resulta profundamente perturbador.
 Ninguna revolución se ha producido sin sufrir poderosas contrarreacciones, porque a la larga el vacío que genera se revela demasiado perturbador para el ser, humano, que inconsciente- mente asocia tales vacíos con la muerte y el caos. La oportunidad de cambio y renovación seduce a la gente y la hace que tome partido por la revolución, pero una vez que se diluyó el entusiasmo, como ocurre de manera indefectible, queda una
@@ -6889,7 +6743,6 @@ efecto sedante que ejerzan asegurará la posición de usted entre las masas.
 Por último, las artes, la moda y la tecnología parecerían ser áreas en las cuales el poder proviene de la creación de una ruptura radical con el pasado para abrir nuevos caminos. Es verdad que una estrategia de este tipo puede ofrecer gran poder, pero también implica grandes riesgos. Es inevitable que las innovaciones de uno sean superadas por otros. Es algo sobre lo cual usted tiene poco control: alguien más joven y más creativo avanza de pronto en una nueva dirección, y entonces la audaz innovación que usted impuso ayer parece hoy chata y aburrida. Es una carrera que no termina nunca. El poder que usted posee es endeble y de corta vida. Lo que debe hacer es construir su poder sobre bases más sólidas. Si utiliza el pasado, si juega con la tradición y manipula lo convencional para subvertirlo, dará a sus creaciones algo más que un atractivo pasajero. Los períodos de vertiginosos cambios sólo disimulan el hecho de que el pasado volverá a infiltrarse en forma inevitable. Al final, usar el pasa- do para sus propios fines le otorgará mayor poder que tratar de anularlo por completo, lo cual no es sino un esfuerzo inútil y autodestructivo.
 LEY N° 45 I 487
 LEY N°
-46
 
 ---
 
@@ -6902,7 +6755,6 @@ LEY N°
 ## CRITERIO
 
 Siempre es peligroso mostrarse superior a los demás, pero lo más peligroso de todo es parecer libre de toda falla o debilidad. La envidia genera enemigos silenciosos. Lo inteligente es poner de manifiesto, de vez en cuando, sus defectos y admitir vicios inofensivos, a fin de desviar la envidia y parecer más humano y accesible. Sólo los dioses y los muertos pueden parecer perfectos impunemente.
-488
 TRANSGRESIÓN DE LA LEY
 Joe Orton conoció a Kenneth Halliwell en la Real Academia de Arte Dramático de Londres, en 1953, donde ambos se habían inscripto como estudiantes de arte escénico. Al poco tiempo se hicieron amantes y fueron a vivir juntos. Halliwell, que en ese momento tenía veinticinco años, era siete años mayor que Orton y parecía el más seguro y confiado de los dos; pero ninguno tenía mucho talento como actor, de modo que, después de graduarse, decidieron renunciar a la actuación y dedicarse a escribir, en forma conjunta. La herencia de Halliwell bastaba para permitirles vivir sin un empleo fijo durante algunos años. Al principio, Halli- well fue también la fuerza impulsora de las historias y novelas que escribían; solía dictarle los textos a Orton, que los escribía a máquina y de vez en cuando agregaba sus propios párrafos e ideas. Las primeras obras de ambos atrajeron cierto interés por parte de los agentes literarios, pero no pasaron de allí. El talento que prometían los llevaba a ninguna parte.
 Al fin, el dinero de la herencia se terminó y la pareja tuvo que buscar trabajo. Sus colaboraciones literarias se tomaban menos entusiastas y menos frecuentes. El futuro , se veía negro.
@@ -7065,7 +6917,6 @@ Fue así como Miguel Ángel triunfó sobre el ponzoñoso arqui- tecto Bramante, 
 Miguel Ángel vio la trampa y quiso rechazar el trabajo, pero no podía negarse a un pedido del Papa, así que aceptó sin quejarse. Sin embargo, utilizó la envidia de Bramante para elevarse a niveles aún más altos, al hacer de las pinturas de la Capilla Sixtina la más perfecta de todas sus obras. Cada vez que Bramante las veía u oía hablar de ellas, más oprimido se sentía por su propia envidia: la más dulce y duradera venganza que se puede lograr con un envidioso.
 LEY N° 46 I 499
 LEY N°
-47
 NO VAYA MÁS ALLÁ DE SU OBJETIVO ORIGINAL; AL TRIUNFAR, APRENDA CUÁNDO DETENERSE
 
 ---
@@ -7073,7 +6924,6 @@ NO VAYA MÁS ALLÁ DE SU OBJETIVO ORIGINAL; AL TRIUNFAR, APRENDA CUÁNDO DETENER
 ## CRITERIO
 
 El momento del triunfo es a menudo el momento de mayor peligro. En el fragor de la victoria, la arrogancia y un exceso de confianza en sus fuerzas pueden llegar a impulsarlo más allá de la meta que se había propuesto en un principio y al ir demasiado lejos serán más los enemigos que se creará que los que logre vencer. No permita que el éxito se le suba a la cabeza. No hay nada como la estrategia y la planificación cuidadosa. Fíjese un objetivo y, cuando lo alcance, deténgase.
-500
 TRANSGRESIÓN DE LA LEY
 En el año 559 a.C. un joven llamado Ciro, formó un inmenso ejército a partir de las dispersas tribus de Persia y marchó contra su abuelo, Astiages, rey de los medos. Lo derrotó con facilidad, se hizo coronar rey de Media y de Persia, y comenzó a forjar el gran imperio persa. En rápida sucesión, obtuvo victoria tras victoria. Ciro derrotó a Creso, rey de Lidia, y luego conquistó las islas Jónicas y otros pequeños reinos; marchó sobre Babilonia y la aplastó. Ahora era conocido como Ciro el Grande, Rey del Mundo.
 Después de apoderarse de las riquezas de Babilonia, Ciro puso la mirada en el este, en las tribus semibárbaras del Masageto, una vasta región que se extendía cerca del mar Caspio. Feroz raza guerrera regida por la reina Tomiris, los masagetas carecían de las riquezas de Babilonia, pero Ciro decidió atacarlos de todos modos, pues se creía sobrehumano e invencible. Daba por sentado que los masagetas caerían con facilidad ante su vasto ejército, tras lo cual él expandía aún más su inmenso imperio.
@@ -7107,7 +6957,6 @@ concluir el interrogatorio con un triunfo. Muchos abogados consiguen sorprender 
 en una seria contradicción, pero, no satisfechos con esto, siguen formulando preguntas y prolongan el interrogatorio hasta que se pierde por completo el efecto que había causado en el jurado la ventaja
 previa.
 THE ART OF CROSS- EXAMINATION, FRANCIS L. WELLMAN,
-1913
 
 ---
 
@@ -7212,7 +7061,6 @@ Como dice Maquiavelo: o bien destruya a un hombre, o déjelo en paz por completo
 Hay quienes se vuelven más cautelosos que nunca después de un triunfo, pues lo ven como algo que sólo les aporta más posesiones de cuya protección deberán ocuparse. La cautela después de la victoria nunca debe hacerlo titubear o perder impulso, sino servirle de salvaguarda contra una acción precipitada. Por otra parte, el impulso a la acción es un fenómeno muy sobrevaluado. Usted crea sus propios éxitos, y si éstos siguen produciéndose uno tras otro, se deben a su propio accionar. La fe en estas "rachas" sólo lo condicionará en el aspecto emocional y lo tornará menos proclive a actuar de forma estratégica y más apto a repetir los mismos métodos. Deje la impulsividad para quienes no tienen nada mejor en que basarse.
 LEY N° 47	509
 LEY N°
-48
 
 ---
 
@@ -7225,7 +7073,6 @@ LEY N°
 ## CRITERIO
 
 Al adoptar una forma definida y tener un plan claro para todo el mundo, usted se convertirá en el blanco de ataques diversos. En lugar de brindar a sus enemigos algo concreto que atacar, manténgase flexible, adaptable y en movimiento. Acepte el hecho de que nada es absoluto y de que no existen las leyes fijas. La mejor forma de protegerse es mantenerse tan fluido y cambiante como el agua. Nunca apueste a la estabilidad ni a un orden perdurable. Todo cambia.
-510
 TRANSGRESIÓN DE LA LEY.
 En el siglo VIII a.C., las ciudades-estado de Grecia habían crecido y prosperado tanto que ya no les quedaban tierras donde albergar a sus crecientes poblaciones. De modo que salieron al mar y establecieron colonias en Asia Menor, Sicilia, la península Itálica e incluso en África. Sin embargo, la ciudad-estado de Esparta ocupaba una zona interior, rodeada de montañas. Al carecer de acceso al Mediterráneo, los espartanos nunca habían sido marinos; lo que hicieron, en cambio, fue volverse contra las ciudades que los rodeaban, y, con una serie de conflictos brutales y violentos que se prolongaron durante más de cien años lograron conquistar un área inmensa que ofrecería espacio suficiente para sus ciudadanos. No obstante, esta solución para el problema original les acarreó otro, más importante: ¿Cómo mantener y vigilar los territorios conquistados? Los habitantes de los pueblos sometidos los superaban en una proporción de diez a uno. Sin du- da, en algún momento aquella horda buscaría terrible venganza contra ellos.
 La solución de Esparta consistió en crear una sociedad dedicada al arte de la guerra. Los espartanos serían más duros,

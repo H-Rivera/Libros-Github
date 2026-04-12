@@ -77,10 +77,32 @@ def extract_pdf(path):
     doc.close()
     return {"title": path.stem, "source": path.name, "page_count": page_count, "pages": pages}
 
+def _clean_docx_paragraph(text: str) -> bool:
+    """Return True if paragraph should be kept (not noise)."""
+    t = text.strip()
+    if not t:
+        return False
+    # Page numbers: "CONTENIDO I 9", "10 I CONTENIDO", "12  I CONTENIDO"
+    if re.match(r'^[\w\s]+I\s+\d+$', t) or re.match(r'^\d+\s+I\s+[\w\s]+$', t):
+        return False
+    # Index entries with page refs: "LEY N° 1 página 29", "PREFACIO  página 19"
+    if re.search(r'p[áa]gina\s+\d+', t, re.IGNORECASE):
+        return False
+    # Pure page numbers
+    if re.match(r'^\d+$', t):
+        return False
+    # Very short noise (single initials like "R. G.", "J. E.")
+    if re.match(r'^[A-Z]\.\s*[A-Z]\.$', t):
+        return False
+    # Repeated slash noise
+    if re.match(r'^[/\|\\]+$', t):
+        return False
+    return True
+
 def extract_docx(path):
     from docx import Document
     doc = Document(str(path))
-    paragraphs = [p.text for p in doc.paragraphs if p.text.strip()]
+    paragraphs = [p.text for p in doc.paragraphs if _clean_docx_paragraph(p.text)]
     pages = []
     for i in range(0, len(paragraphs), 50):
         pages.append("\n".join(paragraphs[i:i + 50]))
